@@ -1,0 +1,65 @@
+### Sebasi Open Corpus: (Kor) 세바시 335회 그래, 여기까지 잘 왔다 | 김창옥 서울여대 기독교학과 겸임교수
+
+- Speaker: 김창옥
+- Gender: 
+- Length: 4:23 in 52 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=QDYFwWvQqfw] (https://www.youtube.com/watch?v=QDYFwWvQqfw)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7LC97Jil-QDYFwWvQqfw-0001 감사합니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0011 사는게 강의처럼 날마다 재미있냐라고 저에게 물어보시는게 있어요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0015 웃고 즐겁고 신이 나나요 솔직히
+- 6rmA7LC97Jil-QDYFwWvQqfw-0022 안겹치게 어떻게 말할까
+- 6rmA7LC97Jil-QDYFwWvQqfw-0031 그런데 한 칠년정도 육년에서 칠년이 넘어가니까 우울증이 오기 시작하더라구요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0033 어설프게 착한 사람들이 우울증에 잘 걸려요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0037 시어머니한테 말대꾸 못하는 며느리들이 있어요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0041 또 아는 사람들 만나면 얼굴표정 어떻게 할까요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0047 위로는 부장님 차장님한테 막 치여도 절대 말대꾸 안하는 과장님들이 있어요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0048 아 부장님 차장님 죄송합니다 제가 열심히 하도록 하겠습니다 화이팅
+- 6rmA7LC97Jil-QDYFwWvQqfw-0056 부장님 처음부터 부장은 아니셨잖아요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0063 개인의 감정은 지치거나 피곤하거나 우울하거나 짜증이 나있는데
+- 6rmA7LC97Jil-QDYFwWvQqfw-0066 아니 지식은 필요하지만 저는 감정을 아주 제 감정을 섞지 않고 이 무대가 필요로 하는 감정을 써야 합니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0080 이제 그렇게 자꾸 하다보니까 제 마음의 관절이 나가버린것 같아요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0087 그래서 고향으로 내려가기로 마음을 먹었습니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0092 마지막으로 한번은 제 문제를 해결하고 내려가야되겠다는 생각이 들었습니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0107 그 때 어떻게 해야 되는지 저는 이렇게 책을 찾다 보니까
+- 6rmA7LC97Jil-QDYFwWvQqfw-0111 제가 왠만한 유명한 병원에서는 이미 강의를 해버린거죠
+- 6rmA7LC97Jil-QDYFwWvQqfw-0112 의사선생님 간호사 선생님 모아놓고 소통강의 엄청 재밌게 하고
+- 6rmA7LC97Jil-QDYFwWvQqfw-0117 여보세요 성당인데 신부님들 70분 80분 정도 특강을 해 달라는 겁니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0119 제가 종교적인 내용은 강의를 못합니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0120 그리고 성당을 안다녀서 분위기를 모릅니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0122 아줌마들한테 한거 똑같이 해주세요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0129 사모님하고 얘기를 나눌 거 같았거든요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0132 신부님 70명 80명이검정색 신부님 옷을 입고 있는데
+- 6rmA7LC97Jil-QDYFwWvQqfw-0133 정말 분위기가 묘하더라구요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0136 마음이 열려서 강의가 끝나자마자 저도 용기를 냈습니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0138 신부님 저는 말만 재밌게 하려고 하는거지
+- 6rmA7LC97Jil-QDYFwWvQqfw-0139 우울증이 좀 있는거 같습니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0144 제가 얘기를 하려고 하고 있는데
+- 6rmA7LC97Jil-QDYFwWvQqfw-0151 수도원에서 전화와서 나왔습니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0152 수도원에 계신 은퇴하신 수사 신부님이신데 연세가 상당히 많이 드셨더라구요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0158 친구들이 다 죽었다는겁니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0159 저는 순간 이거 성당 유머인가 내가 이거 이해못하는건가
+- 6rmA7LC97Jil-QDYFwWvQqfw-0164 문제가 뭐야 말을 재밌게 해야하는 강사인데요 사는게 재미가 있지 않습니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0165 어떻게 해야 좋을지 모르겠습니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0169 아 이게 무슨 말일까 여기에는 반드시 뜻이 있을텐데
+- 6rmA7LC97Jil-QDYFwWvQqfw-0173 자존심의 꽃이 떨어져야 인격의 열매가 맺힌다는 겁니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0174 언제까지 세상을 니 잘난 맛으로 살수 있느냐는 겁니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0178 그건 아니라는 생각이 들었습니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0183 2주의 시간을 주고 프랑스 리옹으로 들어갔습니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0184 그리고 리옹에서 다시 마콩이라는데로 들어갔죠
+- 6rmA7LC97Jil-QDYFwWvQqfw-0193 두번째 짧게하라는겁니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0194 그래서 저는 포도밭에 이렇게 앉아있는데 제가 말을 못걸겠더라구요
+- 6rmA7LC97Jil-QDYFwWvQqfw-0195 시간이 좀 지나니까 정말 제 마음 속 누군가가 명확하게 저에게 한마디를 하는겁니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0197 그래 여기까지 잘왔다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0199 음 제가 오늘 여러분들께 한마디로 소개하고 싶은 이야기가 있다면
+- 6rmA7LC97Jil-QDYFwWvQqfw-0201 그리고 여러분도 여러분 자신에게 언젠가 여유가 있으면
+- 6rmA7LC97Jil-QDYFwWvQqfw-0203 아침 저녁에 시간이 되면 5분 10분 정도 핸드폰 끄고 산책하고
+- 6rmA7LC97Jil-QDYFwWvQqfw-0204 산책의 끝에 마음이 편안해지거든 저희도 거짓말 하지 말고
+- 6rmA7LC97Jil-QDYFwWvQqfw-0205 짧게 자기 스스로에게 이야기를 해보는 것이나 기도를 해보면 좋겠다는 생각입니다
+- 6rmA7LC97Jil-QDYFwWvQqfw-0207 감사합니다

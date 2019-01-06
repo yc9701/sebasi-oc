@@ -1,0 +1,135 @@
+### Sebasi Open Corpus: (Kor, Eng, Chn) 세바시 19회 : 한국학생이 겪는 3대 공부 위기 | 이범 교육청 정책보좌관
+
+- Speaker: 이범 
+- Gender: 
+- Length: 6:13 in 122 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=rrfMNJSHemg] (https://www.youtube.com/watch?v=rrfMNJSHemg)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7J2067KUIA==-rrfMNJSHemg-0002 우리나라 어른들이 청소년들한테
+- 7J2067KUIA==-rrfMNJSHemg-0003 공부해 대해서 하는 이야기는 딱 두가지입니다
+- 7J2067KUIA==-rrfMNJSHemg-0004 첫 번째는 뭐냐
+- 7J2067KUIA==-rrfMNJSHemg-0005 질문을 하죠 질문을 하는데
+- 7J2067KUIA==-rrfMNJSHemg-0009 서양의 학교의 성적표에는 등수라는 게 나오지 않습니다
+- 7J2067KUIA==-rrfMNJSHemg-0010 다 절대 평가기 때문에
+- 7J2067KUIA==-rrfMNJSHemg-0013 공부 열심히 해라 이거죠
+- 7J2067KUIA==-rrfMNJSHemg-0015 노력을 강조하는 건데
+- 7J2067KUIA==-rrfMNJSHemg-0016 사실 인생사의 중요한 일 치고 노력만으로 되는 일은 없습니다
+- 7J2067KUIA==-rrfMNJSHemg-0021 공부에는 세 박자가 필요합니다
+- 7J2067KUIA==-rrfMNJSHemg-0022 삼 박자가 맞아야 되는 건데요
+- 7J2067KUIA==-rrfMNJSHemg-0023 첫 번째로 필요한 것은 뭐냐면
+- 7J2067KUIA==-rrfMNJSHemg-0024 논리적으로는 사실 동기가 맨 처음 필요한 겁니다
+- 7J2067KUIA==-rrfMNJSHemg-0025 그 다음에는 기술이 필요하죠
+- 7J2067KUIA==-rrfMNJSHemg-0026 생각보다 기술은 굉장히 중요한 것입니다
+- 7J2067KUIA==-rrfMNJSHemg-0028 이 세 박자가 맞아야 되는데
+- 7J2067KUIA==-rrfMNJSHemg-0029 사실 이것이 잘 안 맞는 상태에서 무조건 그냥 노력만 하라고 하는
+- 7J2067KUIA==-rrfMNJSHemg-0032 즉 공부 시간이 얼마나 긴지를 통계를 통해서 한번 보겠습니다
+- 7J2067KUIA==-rrfMNJSHemg-0033 자 이것이 전 세계 고등학교 1학년 학생이
+- 7J2067KUIA==-rrfMNJSHemg-0034 일주일에 몇 시간 공부하는지를 보여주는 통계입니다
+- 7J2067KUIA==-rrfMNJSHemg-0037 학교 수업을 포함한 겁니다
+- 7J2067KUIA==-rrfMNJSHemg-0039 세 번째 나오는 미국이 한 33시간 되고
+- 7J2067KUIA==-rrfMNJSHemg-0040 저 밑에서 세 번째 그 유명한 핀란드가 30시간 되는데요
+- 7J2067KUIA==-rrfMNJSHemg-0041 아시겠지만 압도적으로 긴 막대기가 하나 있죠
+- 7J2067KUIA==-rrfMNJSHemg-0047 학력 즉 학업성취도는 세계에서 가장 높은 수준입니다
+- 7J2067KUIA==-rrfMNJSHemg-0048 가장 최근에 있었던 국제학력 비교평가가
+- 7J2067KUIA==-rrfMNJSHemg-0049 고등학교 1학년 대상으로 2009년에 있었습니다
+- 7J2067KUIA==-rrfMNJSHemg-0050 그 성적을 우리가 한번 보면요
+- 7J2067KUIA==-rrfMNJSHemg-0052 읽기가 전 세계 1등
+- 7J2067KUIA==-rrfMNJSHemg-0053 수학이 1등
+- 7J2067KUIA==-rrfMNJSHemg-0054 과학은 3등이었습니다
+- 7J2067KUIA==-rrfMNJSHemg-0057 그리고 과학 1등
+- 7J2067KUIA==-rrfMNJSHemg-0061 한국 학생들은 50시간 공부해서 저 성적이 나옵니다
+- 7J2067KUIA==-rrfMNJSHemg-0063 너무 극단적이잖아요
+- 7J2067KUIA==-rrfMNJSHemg-0064 이게 보여주는 게 뭐냐면
+- 7J2067KUIA==-rrfMNJSHemg-0065 한국 학생들이 공부에 대한 기술이 형편없다는 거예요
+- 7J2067KUIA==-rrfMNJSHemg-0068 가장 심각하게 위기를 느끼는 것이
+- 7J2067KUIA==-rrfMNJSHemg-0069 이 학생들이 공부에 대한 기술이 형편없다는 겁니다
+- 7J2067KUIA==-rrfMNJSHemg-0070 기성세대 청소년기였을 때 하고 지금 청소년들 하고
+- 7J2067KUIA==-rrfMNJSHemg-0075 그래도 단어장도 만들어 보고 노트 정리도 해 보고
+- 7J2067KUIA==-rrfMNJSHemg-0078 다들 그냥 남이 하라는 대로만 하는 공부가 대부분입니다
+- 7J2067KUIA==-rrfMNJSHemg-0079 그래서 이런 경험을 못 해 본 학생들이 너무나 많아요
+- 7J2067KUIA==-rrfMNJSHemg-0080 특히 가장 심각한 문제는 이제 중학교 때 발생합니다
+- 7J2067KUIA==-rrfMNJSHemg-0082 사실 공부의 기술은 초등학교 때 형성 되기는 어렵습니다
+- 7J2067KUIA==-rrfMNJSHemg-0091 이것을 방해하는 가장 심각한 장애물이 바로 종합반 학원입니다
+- 7J2067KUIA==-rrfMNJSHemg-0096 다른 말로 해 볼까요
+- 7J2067KUIA==-rrfMNJSHemg-0100 또는 종합반에 등록은 안 했다 할지라도
+- 7J2067KUIA==-rrfMNJSHemg-0106 굉장히 중요한 주범입니다
+- 7J2067KUIA==-rrfMNJSHemg-0109 야 요즘 수강신청하는데 왜 이렇게 엄마들이 많이 오냐
+- 7J2067KUIA==-rrfMNJSHemg-0110 다들 그 얘기합니다
+- 7J2067KUIA==-rrfMNJSHemg-0115 이게 지금 우리가 후속 세대들을 어떻게 키워가고 있는지를 잘 보여주는 단면입니다
+- 7J2067KUIA==-rrfMNJSHemg-0119 학교에서 공부한 것을 복습하는 습관하고
+- 7J2067KUIA==-rrfMNJSHemg-0120 독서습관 입니다
+- 7J2067KUIA==-rrfMNJSHemg-0121 그런데 이런 습관의 형성을 가장 심각하게 방해하는 게 뭐냐면
+- 7J2067KUIA==-rrfMNJSHemg-0122 바로 방학 때 학원을 보내서 선행학습을 시키는 거예요
+- 7J2067KUIA==-rrfMNJSHemg-0124 잘 생각해 보세요
+- 7J2067KUIA==-rrfMNJSHemg-0132 그러니까 엄마가 하라는 대로 학교하고 학원을 왕복하면
+- 7J2067KUIA==-rrfMNJSHemg-0133 같은 내용을 적어도 네 번씩 수동적으로 반복하게 되어있습니다
+- 7J2067KUIA==-rrfMNJSHemg-0134 자 그 결과 어떤 문제가 생길까요
+- 7J2067KUIA==-rrfMNJSHemg-0135 집중력이 떨어집니다
+- 7J2067KUIA==-rrfMNJSHemg-0140 근데 나는 이미 알고 있어요
+- 7J2067KUIA==-rrfMNJSHemg-0141 뭘 알고 있냐
+- 7J2067KUIA==-rrfMNJSHemg-0142 저 내용이 적어도 세 번 반복된다는 걸 알고 있는 거예요
+- 7J2067KUIA==-rrfMNJSHemg-0144 집중력 저하 훈련을 집중적으로 받고 있습니다 지금
+- 7J2067KUIA==-rrfMNJSHemg-0149 종합반 또는 스스로 종합반을 구성함으로써
+- 7J2067KUIA==-rrfMNJSHemg-0151 계획에 어떻게 세워보니까 나한테 제일 효율적이라던지
+- 7J2067KUIA==-rrfMNJSHemg-0154 연구자들이 연구를 해보면
+- 7J2067KUIA==-rrfMNJSHemg-0155 학원주도학습보다 자기주도학습이 항상 더 효과적이라고 나오거든요
+- 7J2067KUIA==-rrfMNJSHemg-0157 이게 왜 그런가 우리가 생각해 볼 필요가 있는데요
+- 7J2067KUIA==-rrfMNJSHemg-0158 학원주도학습하고 자기주도학습 뭐가 다를까요
+- 7J2067KUIA==-rrfMNJSHemg-0159 학원주도 학습은 이것이 필요한지의 여부를 본인이 판단하는 게 아니에요
+- 7J2067KUIA==-rrfMNJSHemg-0161 하지만 자기주도학습은 이것이 필요한지의 여부를 스스로에게 되물어서 판단하는 거죠
+- 7J2067KUIA==-rrfMNJSHemg-0162 자 어느 쪽이 더 정확할 것 같습니까
+- 7J2067KUIA==-rrfMNJSHemg-0165 학원 한 시간다니는 아이들보다 한 시간 동안 자기주도학습 한 아이가
+- 7J2067KUIA==-rrfMNJSHemg-0169 그 이유가 바로 여기에 있는 거죠
+- 7J2067KUIA==-rrfMNJSHemg-0170 그러나 현실적으로 우리나라 학생들이 공부하는 주된 방식은 다 학원주도학습이죠
+- 7J2067KUIA==-rrfMNJSHemg-0175 근데 문제가 하나 있습니다
+- 7J2067KUIA==-rrfMNJSHemg-0176 2007년에 전 세계 중학교 2학년 대상으로
+- 7J2067KUIA==-rrfMNJSHemg-0179 고등학생만 높은 게 아니라 중학생도 매우 높게 나옵니다
+- 7J2067KUIA==-rrfMNJSHemg-0180 그런데 학력 말고 한 가지 지표를 더 조사했습니다
+- 7J2067KUIA==-rrfMNJSHemg-0181 수학의 학업 흥미도를 조사했더니
+- 7J2067KUIA==-rrfMNJSHemg-0182 49개국이 참여했는데
+- 7J2067KUIA==-rrfMNJSHemg-0184 자 과학도 평가했습니다
+- 7J2067KUIA==-rrfMNJSHemg-0186 그런데 역시 과학에 대한 학업 흥미도도 조사했거든요
+- 7J2067KUIA==-rrfMNJSHemg-0187 그랬더니 전 세계에서 29등
+- 7J2067KUIA==-rrfMNJSHemg-0190 우리나라 학생들은 전 세계에서 제일 재미없는 공부를 전세계에서 제일 오래하는 거죠
+- 7J2067KUIA==-rrfMNJSHemg-0191 제가 지금 주관적인 느낌을 이야기하는 겁니까
+- 7J2067KUIA==-rrfMNJSHemg-0192 아니죠
+- 7J2067KUIA==-rrfMNJSHemg-0193 전 세계 모든 교육학자들이 다 알고 있는
+- 7J2067KUIA==-rrfMNJSHemg-0195 전 세계에서 가장 재미없는 공부를 전 세계에서 어떻게 제일 오래 할 수 있죠
+- 7J2067KUIA==-rrfMNJSHemg-0196 한국 학생들이 어떻게 저렇게 공부를 할 수 있을까요
+- 7J2067KUIA==-rrfMNJSHemg-0199 한국 학생들이 공부하는 이유는 딱 네 글자로 요약이 됩니다
+- 7J2067KUIA==-rrfMNJSHemg-0203 이것 아니고서는 설명이 안 됩니다 설명이 불가능해요
+- 7J2067KUIA==-rrfMNJSHemg-0204 전 세계 모든 교육학자들 사이에서 아주 유명합니다
+- 7J2067KUIA==-rrfMNJSHemg-0205 한국 애들 혼날까봐 공부하는 애들
+- 7J2067KUIA==-rrfMNJSHemg-0207 가장 제가 학생들을 상담하다가 절망하는 경우가 이 경운데요
+- 7J2067KUIA==-rrfMNJSHemg-0213 저 같은 사람은 도움을 줄 수 없을 것 같습니다
+- 7J2067KUIA==-rrfMNJSHemg-0220 왜 이런 무기력증 환자가 급증하겠느냐
+- 7J2067KUIA==-rrfMNJSHemg-0222 전 세계에서 제일 재미없는 것을 제일 오래 시키니까 이러는 거죠
+- 7J2067KUIA==-rrfMNJSHemg-0224 자 물론 노력 많이 합니다
+- 7J2067KUIA==-rrfMNJSHemg-0225 공부시 간 제일 긴 걸 보면 바로 알 수 있는데
+- 7J2067KUIA==-rrfMNJSHemg-0227 즉 진도 나가는데 굉장히 급급한 공부를 하고 있습니다
+- 7J2067KUIA==-rrfMNJSHemg-0229 이런 식의 공부 굉장히 아이들 많이 길들이거든요
+- 7J2067KUIA==-rrfMNJSHemg-0230 그래서 굉장히 많은 아이들이 뭘 착각하냐면
+- 7J2067KUIA==-rrfMNJSHemg-0231 진도가 성취도인 줄 알아요
+- 7J2067KUIA==-rrfMNJSHemg-0237 보충학습이나 또 학원에서도 배우고
+- 7J2067KUIA==-rrfMNJSHemg-0242 진도 나간 게 공부인 줄 알아요
+- 7J2067KUIA==-rrfMNJSHemg-0243 결국 우리나라 학생들이 어떻게 공부하는지를
+- 7J2067KUIA==-rrfMNJSHemg-0244 구체적으로 상담을 통해서 제가 관찰을 하면 할수록
+- 7J2067KUIA==-rrfMNJSHemg-0246 이런 느낌이 점점점 저를 엄습을 합니다
+- 7J2067KUIA==-rrfMNJSHemg-0247 우리나라 학생들이 겪고 있는 공부 위기
+- 7J2067KUIA==-rrfMNJSHemg-0248 첫번째 동기의 위기
+- 7J2067KUIA==-rrfMNJSHemg-0249 이유는 무엇이었죠
+- 7J2067KUIA==-rrfMNJSHemg-0250 전 세계에서 제일 재미없는 공부를 전 세계에서 제일 오래 한다
+- 7J2067KUIA==-rrfMNJSHemg-0252 무기력증 환자들이 급증하고 있다
+- 7J2067KUIA==-rrfMNJSHemg-0256 중학교에 들어가서 공부에 대해서 어떠한 계획도 세울 필요가 없을 뿐만 아니라
+- 7J2067KUIA==-rrfMNJSHemg-0258 결국 성취도를 관리하는 데 필요한 시간관리 기술이나 복습 기술이나
+- 7J2067KUIA==-rrfMNJSHemg-0261 뭔가 공부를 많이 하긴 하는데
+- 7J2067KUIA==-rrfMNJSHemg-0263 즉 성취도를 위주로 공부하는 것이 아니라
+- 7J2067KUIA==-rrfMNJSHemg-0268 취업하기 힘드니까 심리적으로 쫄아서 그렇다 이렇게 설명합니다만
+- 7J2067KUIA==-rrfMNJSHemg-0271 남이 하라는 대로만 하는 이런 식의 공부
+- 7J2067KUIA==-rrfMNJSHemg-0273 자 우리 사회가 그리고 우리 학교가 가정이

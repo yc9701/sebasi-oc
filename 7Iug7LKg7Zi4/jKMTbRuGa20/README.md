@@ -1,0 +1,149 @@
+### Sebasi Open Corpus: 세상의 굶주림을 없애는 진짜 방법 | 신철호 OGQ 이사회 의장 | 세바시 331회
+
+- Speaker: 신철호
+- Gender: 
+- Length: 6:54 in 136 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=jKMTbRuGa20] (https://www.youtube.com/watch?v=jKMTbRuGa20)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0001 안녕하세요 신철호입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0002 저는 오늘 여러분과
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0003 세상의 굶주림을 없애는 방법에 대해서 의견을 나누고자 합니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0006 그거면 저녁에 일곱 개 먹고 다음날 아침으로 세 마리 정도 먹으면
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0007 두 끼를 해결할 수 있었는데요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0009 배가 고프다는 것은 늘 경험하는 것이지만
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0010 아마 굶주린다는 것은 손쉽게 경험하지 못하는 일일 것입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0011 그런데 여러분과 제가 한 가지 해 보겠습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0012 우리 주제가 굶주림을 없애는 방법을 아는 것이기 때문에
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0013 경험하지 못했던 것을 한번 가정으로 해 볼게요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0014 먼저 여러분을 이 체육관에서 오늘 제가 못 나가도록 하겠습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0016 두번째는요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0019 하루 이틀 일주일이 지납니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0026 다 같이 며칠까지 버틸 수 있는지 아마 계획을 세우시게 될 겁니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0028 이게 우리가 상황을 모면하는 방법일까요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0030 첫번째는요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0033 두번째는
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0034 그렇게 여러분을 못 나가게 한 저를 없애는 것이 방법이겠죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0035 저는 그렇게 두 가지로 보고 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0037 그가 하버드를 졸업할 때
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0038 부 건강 그리고 기회에 대한 균등한 인식 없이
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0039 그런 불평등에 대한 진정한 인식없이 학교를 떠났던 것을
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0040 자기의 인생 후회라고 하고 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0042 식량의 분야에서 끊임없이 혁신을 일궈내지 못한다면
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0043 우리 인류가 위기를 맞게 될 것이다 라고 또한 이야기를 합니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0047 세계의 자원은 여러분이 이 표에서 보시는 바와 같이 매우 풍부하게 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0048 식량은 그렇지 않을까요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0049 1984년에 FAO가 발표한 자료에 따르면
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0050 당시 기준으로 해도
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0051 무려 120억명의 인구가 먹고 살 수 있는 식량이 지구에 존재한다고 했습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0052 그러면 지금 얼마나 늘었을까요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0054 전 세계의 인구가 먹고 살 수 있고 1년 동안
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0055 프랑스의 곡물 만으로 전 유럽이 1년 동안 먹고 살 수 있다고 합니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0056 이게 최근의 일만일까요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0057 1930년도에 식량 증산 정책에 의해서
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0060 식량이 부족해서 굶주리고 있지 않다는 이야기죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0061 지금 보시는 소말리아 그리고 콩고 에티오피아 같은 나라들
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0062 우리가 알고 있었던 아프리카의 나라들은요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0064 우리 사회에서 이미 그들 나라에는 중국 일본 한국이
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0070 왜 그럴까요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0071 브라질은 세계 제 1의 곡물 수출국이라고 합니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0072 하지만 그 나라에는 무려 7000만명의 영양실조에 걸린 사람들이 존재하고 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0073 그건 또 왜 그럴까요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0076 많은 사람들이 기술적으로 보다 덜 진보되어 있지만
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0078 그럼에도 불구하고 실제 현실은 이렇습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0080 토머스 맬서스의 그 말도 안되는 말이 맞았던 걸까요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0081 우리의 생각이 틀린걸까요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0086 베네수엘라 러시아 콩고 이 나라들을 한번 보시면
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0088 그렇다면 우리가 상식적으로 볼 때 부자 나라인데
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0093 인도는 자급 자족 식량 생산 능력 국가입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0094 그럼에도 불구하고 인도의 경우에는
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0095 무려 7천만 명이 또한 영양실조에 시달리고 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0098 무려 아프리카는 2008년 2010년의 경우에
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0101 1000조 원입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0102 어마어마한 돈이죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0103 그런데 왜 아무런 변화가 지금 특별히 없는 걸까요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0104 인구가 증가해서요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0106 하지만 세계 기아 인구도 마치 스타트업의 성장곡선처럼 급격히 증가하고 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0118 아프리카는 가난하지 않습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0119 대신 바보처럼 관리되고 있을 뿐입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0121 한번 보시죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0122 이집트의 무바라크 대통령 700억 달러
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0123 나이지리아의 아바차 대통령 200억 달러
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0127 우리의 부끄러운 과거인 전두환 노태우 대통령은
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0128 가셔서 멘토링을 받으셔야 될 것 같습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0129 그렇죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0132 진짜 양궁이라는 활인데요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0134 양궁은 항상 10점 과녁의 한 가운데를 맞춰야 승리할 수 있는 경기입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0139 굶주림의 근본적 원인이 바로 부패에 있다는 거죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0140 여러분 기억하십니까
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0142 그리고 여러분을 이 체육관에서 못나가게 문을 닫은
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0143 저를 제거해야 된다고 했던 것 기억하시죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0144 우리 사회에서 제거 해야하는 것은 바로 그런 원인입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0145 정리해 보겠습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0147 그리고 여러분의 선한 마음으로 우리가 기부하고 있는 것들은
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0148 마치 자동차 경주의 피트 스탑에 잠시 멈춰서 엔진과 바퀴를 수리해 주는 것과 같죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0150 암이란 질병을 우리가 진통제로 처방하고 있는 격입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0153 두번째는 교육기회 박탈에서 오는
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0154 우리 마음속에 있는 순종주의에서 증가 한다고 합니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0155 그렇다면 저 표만 봐도
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0156 경제적인 빈곤은 우리가 기부해서 돈으로 해결할 수 있지만
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0158 오로지 교육을 통해서만 없앨 수 있다고 볼 수 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0160 우리의 문명이 살아 남으려면
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0164 하나는 민간영역에 대해서
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0165 우리가 직접 현장에 가서 기부하고 그들을 돕는 것이 하나의 해법일 것이구요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0166 두번째는 우리의 분노를 표현하고
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0168 이 두바퀴가 함께 굴러갈 때
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0169 굶주림의 올바른 해법이라고 할 수 있을 것입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0170 그런데 우리가 한가지 더 의문을 가질 수 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0172 그 다음에 리비아의 카다피들은 모두 독재자에서 척출된 인물들입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0173 저렇게 분노를 표현하고 독재자를 제거했음에도 불구하고
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0176 역시 마찬가지입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0179 그렇죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0180 자 문제의 원인을 한번 보시죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0183 저 나라들이 저렇게 다시 전쟁으로 빠져들었던 것은
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0184 중산층이 참여하지 않고
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0185 오로지 빈민들만 참여하는 연대가 되었기 때문입니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0187 그리고 지속적인 평가와 감시를 통해서 우리 시민의식이 성장할 때
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0189 우리 사회의 굶주림 해법은 나오게 됩니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0191 부르키나파소의 산카라라는 사람은
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0193 보츠와나도 마찬가지죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0194 보츠와나도 빈국에서 1인당 6300달러의 국민소득 구조를 만들었구요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0197 이 나라들을 선진적 구조로 발전시켜 나가고 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0201 근대의 쿠데타는 군사였습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0202 하지만 현대의 쿠데타는요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0203 우리가 좋으면 좋다 싫으면 싫다고
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0205 그것이 바로 이러한 화면으로 나타날 수 있겠습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0208 싫으면 싫다고 표현하면 됩니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0209 이 가상 세계에서는 4년마다 한 번씩 투표를 하지 않습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0210 독일의 슈뢰더 총리가 이렇게 말을 했습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0211 민주주의의 꽃이라고 불리는 투표는
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0212 사실상 기득권이 기득권을 유지하는 가장 치밀한 장치이다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0213 4년의 주기가 우리를 망각시킨다는거죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0218 모바일을 통해서 시민 세력이 실시간으로 생성되고 발전되고 소멸되는
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0222 그들은 지금 당장 굶주림에 허덕이고 있고 전기도 없고 휴대폰도 없는데
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0223 무슨 모바일 시민 불복종 프로젝트를 하자는 것입니까
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0224 라고 저라도 똑같이 제기 할 수 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0227 가난한 국가의 국민들도 컴퓨터를 쓸 수 있게 보급해 오고 있습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0230 전기로도 휴대폰을 충전하는 기술은 어떻습니까
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0231 구글이 최근 발표한 프로젝트 룬은 어떻습니까
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0232 풍선을 띄워서
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0233 오지 마을에도 인터넷을 쓸 수 있는 환경을 만들겠다는 프로젝트었죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0234 페이스북의 주커버그는 어땠나요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0240 우리는 이렇게 외칠 수 있을 거에요
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0243 좋으면 좋고 싫으면 싫다고 그들에게 표현할 수 있는 권리 말이죠
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0244 노신은 무쇠로 된 방을 탈출 할 수 있는 방법은
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0245 먼저 절망하고
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0247 그래서 무쇠로 된 방을 뚫어지게 응시하고 쳐다보면
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0249 그것이 열릴 수 있다고 했습니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0252 내 자신이 귀하다고 생각하는 데서 출발합니다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0254 여러분은 귀한 존재입니까
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0257 여러분은 귀한 존재입니까
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0260 누구의 소유물이 되기에는
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0263 나는 너무나도 고귀하게 태어났다
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0264 우리 사회가 굶주림의 해법을
+- 7Iug7LKg7Zi4-jKMTbRuGa20-0265 두 바퀴의 구조 속에서

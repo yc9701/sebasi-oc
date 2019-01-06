@@ -1,0 +1,120 @@
+### Sebasi Open Corpus: 진정한 위로는 방향까지 제시한다 | 이철환 작가 | 세바시 134회
+
+- Speaker: 이철환
+- Gender: 
+- Length: 4:58 in 107 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=2CVK2XPseoE] (https://www.youtube.com/watch?v=2CVK2XPseoE)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7J207LKg7ZmY-2CVK2XPseoE-0001 지금 사마귀가 거미를 뜯어먹고 있습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0003 거미는 이렇게 거미줄을 쳐놓고서
+- 7J207LKg7ZmY-2CVK2XPseoE-0004 곤충이 걸리길 기다렸습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0006 그럼 사마귀가 거미하고 싸워야하는데
+- 7J207LKg7ZmY-2CVK2XPseoE-0011 자 저 사마귀는 저 거미를 먹으면 힘을 내서
+- 7J207LKg7ZmY-2CVK2XPseoE-0012 거미줄을 빠져나올 수 있을까요
+- 7J207LKg7ZmY-2CVK2XPseoE-0016 또 거미가 나오는데요
+- 7J207LKg7ZmY-2CVK2XPseoE-0019 걸어놓은 것입니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0027 생각이 들었습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0031 아닐 것 같은데요
+- 7J207LKg7ZmY-2CVK2XPseoE-0035 그 아래에 토끼가 땅굴을 파놓고 숨어있습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0043 자신보다 더 힘 센 자 때문에
+- 7J207LKg7ZmY-2CVK2XPseoE-0044 굴속에 저렇게 숨어지내야 할 때가 있는것이지요
+- 7J207LKg7ZmY-2CVK2XPseoE-0048 똑같은 조건이라면 같은 종류의 나무라면
+- 7J207LKg7ZmY-2CVK2XPseoE-0053 타고난 DNA가 좋던지 아니면 성장 조건이 좋을 것 같습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0058 아까 왼쪽에 있는 뿌리 깊은 나무가 뒤집었더니
+- 7J207LKg7ZmY-2CVK2XPseoE-0060 여기서 우리는 뿌리깊은 나무가 키 큰 나무가 될 수 있다는
+- 7J207LKg7ZmY-2CVK2XPseoE-0063 항상 높이를 기웃거립니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0064 저 또한 그렇습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0065 그런데요 어쩌면 높이를 갖기 위해서
+- 7J207LKg7ZmY-2CVK2XPseoE-0067 깊이를 먼저 고민해야할지도
+- 7J207LKg7ZmY-2CVK2XPseoE-0073 땅 속 깊이 춥고 어둡고 딱딱한 땅 속을
+- 7J207LKg7ZmY-2CVK2XPseoE-0075 깊이를 갖기 위해서
+- 7J207LKg7ZmY-2CVK2XPseoE-0080 저의 생각을 요약해보았습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0082 첫 번째 우리는 독서를 통해서 깊이를
+- 7J207LKg7ZmY-2CVK2XPseoE-0084 자 살아가면서 필요한 것들이 참 여러가지 있는데
+- 7J207LKg7ZmY-2CVK2XPseoE-0085 사람의 마음을 움직이는 건 굉장히 필요하다고 생각합니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0088 사람의 마음을 움직이기 위해서는
+- 7J207LKg7ZmY-2CVK2XPseoE-0090 상황을 설명할 수 있는 힘이 있어야하고
+- 7J207LKg7ZmY-2CVK2XPseoE-0091 사람을 설득할 수 있는 힘이 있어야 하는데요
+- 7J207LKg7ZmY-2CVK2XPseoE-0093 저는 경험이라고 생각합니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0096 그렇다면 우리는 그 대신 간접경험을
+- 7J207LKg7ZmY-2CVK2XPseoE-0099 나를 설명하고 상황을 설명하고
+- 7J207LKg7ZmY-2CVK2XPseoE-0100 사람을 설득할 수 있는 것이지요
+- 7J207LKg7ZmY-2CVK2XPseoE-0101 다만 독서하는데 중요한 것은
+- 7J207LKg7ZmY-2CVK2XPseoE-0102 방법의 문제일 것 같은데요
+- 7J207LKg7ZmY-2CVK2XPseoE-0104 밑줄을 그은다거나 노트를 해두었다가요
+- 7J207LKg7ZmY-2CVK2XPseoE-0106 아 이거는 내가 사랑을 고백할 때
+- 7J207LKg7ZmY-2CVK2XPseoE-0113 그것을 반복하는 것만으로도
+- 7J207LKg7ZmY-2CVK2XPseoE-0117 또한 우리는 우리를 스스로 우리안에 고립시키고
+- 7J207LKg7ZmY-2CVK2XPseoE-0118 우리 스스로 소외되기도 하는데요
+- 7J207LKg7ZmY-2CVK2XPseoE-0122 나무오리에요
+- 7J207LKg7ZmY-2CVK2XPseoE-0127 이렇게 날아갈 수 있는 날개를 달아 줄 수
+- 7J207LKg7ZmY-2CVK2XPseoE-0129 자 두번째로 말씀드릴 것은 우리는
+- 7J207LKg7ZmY-2CVK2XPseoE-0134 저는 그냥 넘어오는 쪽을 택해 보았습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0137 누굴까요
+- 7J207LKg7ZmY-2CVK2XPseoE-0138 루돌프였습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0139 다음 그림을 보시면 지금 산타와 루돌프가
+- 7J207LKg7ZmY-2CVK2XPseoE-0140 위치가 바뀌어있는 장면을 보실 겁니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0142 내면의 힘을 가진 멋진 산타라고 생각합니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0143 그것은 결국 소통을 안다는 것일텐데요
+- 7J207LKg7ZmY-2CVK2XPseoE-0144 성공에 대해서 어떻게 정의하시는지요
+- 7J207LKg7ZmY-2CVK2XPseoE-0145 엘리지골리가 된 것 물론 성공입니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0147 어쩌면 제가 생각할 때 진짜 성공은 우리가 일을 하는 일터
+- 7J207LKg7ZmY-2CVK2XPseoE-0153 저 산타는 알고 있는 것 같습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0154 함께 일하는 루돌프에게
+- 7J207LKg7ZmY-2CVK2XPseoE-0157 저 산타의 썰매를 끌겠다는
+- 7J207LKg7ZmY-2CVK2XPseoE-0159 저 루돌프가 산타마을에 가서 소문을 낼 것 같거든요
+- 7J207LKg7ZmY-2CVK2XPseoE-0162 배려는 사람들 가슴 속에 기억된다고 합니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0166 믿음이라고 합니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0167 근데 믿음은 관계만 이어주는 것이지
+- 7J207LKg7ZmY-2CVK2XPseoE-0172 냉소적인 것 조금 걷어내는 것만으로도
+- 7J207LKg7ZmY-2CVK2XPseoE-0173 우리는 다른 사람을 조금 더 진심으로 대할 수 있는
+- 7J207LKg7ZmY-2CVK2XPseoE-0174 마음을 가질 수 있다고 생각합니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0176 사람도 있잖아요 있을 거라고 생각합니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0177 그런데요 그런 사람이 있다고 해서
+- 7J207LKg7ZmY-2CVK2XPseoE-0181 세상에 믿을 사람 아무도 없다고
+- 7J207LKg7ZmY-2CVK2XPseoE-0185 참을만 하면 그냥 견디고 가지요
+- 7J207LKg7ZmY-2CVK2XPseoE-0186 그러다가 정말 참을 수 없을 때 우리는 신발을 벗고
+- 7J207LKg7ZmY-2CVK2XPseoE-0187 돌멩이를 빼냅니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0189 오래 전부터 한결 같은 마음을 주었을 때
+- 7J207LKg7ZmY-2CVK2XPseoE-0190 진심을 얻을 수 있는 것이 아닌가 생각됩니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0191 갑자기 내가 필요할 때
+- 7J207LKg7ZmY-2CVK2XPseoE-0192 내가 결혼식 한다고 해서 연락한다는 것
+- 7J207LKg7ZmY-2CVK2XPseoE-0196 버릴 필요가 있다는 것이지요
+- 7J207LKg7ZmY-2CVK2XPseoE-0197 내 생각에 대한 확신만 버려도 우리는 진실과 본질을 향해
+- 7J207LKg7ZmY-2CVK2XPseoE-0199 자 이럴테면 저는 긍정적인 사고를 하는 사람은
+- 7J207LKg7ZmY-2CVK2XPseoE-0207 두 가지 해석을 할 수 있습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0212 차가 날 보고 속도를 멈춰주거나 아니면
+- 7J207LKg7ZmY-2CVK2XPseoE-0218 그냥 물에 빠질 수도 있습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0220 자 한 분의 말씀을 더 드릴텐데요
+- 7J207LKg7ZmY-2CVK2XPseoE-0221 대니얼 카너먼 행동심리학자라고 합니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0222 그 분이 이런 말씀을 하셨어요
+- 7J207LKg7ZmY-2CVK2XPseoE-0224 나의 생각이 정말 나의 생각인가에 대한
+- 7J207LKg7ZmY-2CVK2XPseoE-0225 의심을 하라는 것이지요
+- 7J207LKg7ZmY-2CVK2XPseoE-0229 그러니까 우리의 생각을 한번 쯤 의심해 보는 것
+- 7J207LKg7ZmY-2CVK2XPseoE-0230 그리고 인간은 굉장히
+- 7J207LKg7ZmY-2CVK2XPseoE-0231 효율적인 선택을 할 것 같지만
+- 7J207LKg7ZmY-2CVK2XPseoE-0235 자 이 그림 강아지입니까 곰입니까
+- 7J207LKg7ZmY-2CVK2XPseoE-0238 어머 곰이 너무 너무 예뻐요
+- 7J207LKg7ZmY-2CVK2XPseoE-0242 저 꼬리로 증명했습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0250 의심할 필요가 있다는 것이지요
+- 7J207LKg7ZmY-2CVK2XPseoE-0252 거의 햇수로는 3년이 걸렸어요
+- 7J207LKg7ZmY-2CVK2XPseoE-0254 그림 원고 넘기기 3일 전에 이 그림의 오류를 발견했습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0255 뭐 같은가요
+- 7J207LKg7ZmY-2CVK2XPseoE-0256 시간이 없으니까 제가 말씀드리겠습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0260 이게 맞습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0261 저 3일 전에 발견했습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0264 될 수 있는지에 대해서 생각해보았습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0266 우리가 지금 보고 있는 것은 단지 껍데기에 불과하다
+- 7J207LKg7ZmY-2CVK2XPseoE-0270 우리는 오직 마음으로만 정확하게 볼 수 있다
+- 7J207LKg7ZmY-2CVK2XPseoE-0271 자기 생각에 대한 확신을 버리는 것
+- 7J207LKg7ZmY-2CVK2XPseoE-0277 어쩌면 담장이라는 공간은 꽃이 피어나기에는
+- 7J207LKg7ZmY-2CVK2XPseoE-0279 그러나 저기에 틈이 있었고
+- 7J207LKg7ZmY-2CVK2XPseoE-0281 거기에 또 꽃씨가 하나 날라왔습니다
+- 7J207LKg7ZmY-2CVK2XPseoE-0288 깊이를 고민하는 여러 선생님 푸르른 지성 그리고
+- 7J207LKg7ZmY-2CVK2XPseoE-0291 경청해주셔서 감사합니다

@@ -1,0 +1,38 @@
+### Sebasi Open Corpus: (Kor) 세바시 337회 선택받기보다는 선택해야 합니다 | 정태성 택시기사, 비전택시대학 총장
+
+- Speaker: 정태성
+- Gender: 
+- Length: 2:29 in 25 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=1KJdFCwf6mA] (https://www.youtube.com/watch?v=1KJdFCwf6mA)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0005 제 평상시 운전복장이 양복이기도 합니다
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0011 저한테도 가슴속에 소설책 한권이 있어요
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0020 그런데 사람이 살다보면 엎친데 덮친다고 합니다
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0024 제가 무슨 돈이 있어서 무슨 신용이 있어서 수술자금을 마련하겠습니까
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0026 수술은 받을수 있었죠
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0031 무작정 거리를 걸어갑니다 사람이 정말 절망적인 순간이 오면요
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0032 시선은 하늘을 볼수 도 없고요 정면을 볼수도 없고
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0033 자동적으로 고개는 바닥으로 뚝 떨어집니다
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0040 그 전까지 제가 거기까지 어떻게 왔는지 전혀 기억이 없어요
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0085 왜냐 남편이 14시간 동안 운전하면서 차에서 한번도 안내리고
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0094 건강하잖아요 살아있잖아요
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0109 이정도는 기본이죠 이렇게 하시는 분들이 많이 계세요
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0113 정말 VVIP 손님은 레드카펫을 깔아드립니다
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0129 제꿈은요
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0136 그럼 제가 택시대학을 어떻게 만들어요 택시기사인데
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0139 내가 만들겠다 그래서 5월 29일 드디어 택시대학 입학식은 열렸고요
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0150 어렵고 힘들때 저한테 위로와 격려와 질책을 해주셨던 분이 계세요
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0152 그분때문에 저는 오늘 이자리에 섰습니다
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0159 어떤때는 더 많게는 선택 받지 못할때도 있어요
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0162 그것은 또다른 선택이기도 합니다
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0163 의사가 수술 끝나고 그다음날 저를 부릅니다
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0172 단 시간이 지날수록 나머지 장기들이 파손되어 갑니다
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0176 바로 인공 심폐기는 제거 되었고 그것이 마지막이였죠
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0179 꿈을 갖고 앞으로 전진하고 있습니다
+- 7KCV7YOc7ISx-1KJdFCwf6mA-0180 여기계신 여러분들은 정말 선택받으신 분들이예요

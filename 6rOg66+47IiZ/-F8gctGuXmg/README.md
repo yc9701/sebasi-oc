@@ -1,0 +1,205 @@
+### Sebasi Open Corpus: (Kor, Eng) 세바시 418회 백수의 정치경제학 | 고미숙 문학평론가
+
+- Speaker: 고미숙
+- Gender: 
+- Length: 12:32 in 192 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=-F8gctGuXmg] (https://www.youtube.com/watch?v=-F8gctGuXmg)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rOg66+47IiZ--F8gctGuXmg-0001 안녕하세요 반갑습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0002 제가 좀 시대를 앞서서 아주 오랫동안 백수로 지냈거든요
+- 6rOg66+47IiZ--F8gctGuXmg-0003 처음에는 조금 외롭고 꿀꿀했어요
+- 6rOg66+47IiZ--F8gctGuXmg-0004 근데 이제 날이 갈 수록 이 맛이 너무너무 쏠쏠해서
+- 6rOg66+47IiZ--F8gctGuXmg-0005 세상에 이렇게 좋은 팔자가 있나
+- 6rOg66+47IiZ--F8gctGuXmg-0006 그런데 이거를 이렇게 얘기할 데가 없었어요
+- 6rOg66+47IiZ--F8gctGuXmg-0007 근데 점점 시간이 지날 수록 제 주변에 백수가 늘어나는 거에요
+- 6rOg66+47IiZ--F8gctGuXmg-0008 드디어 백수 천국의 시대가 되서 이제는 말할 수 있다
+- 6rOg66+47IiZ--F8gctGuXmg-0010 굉장히 기쁘게 생각합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0013 제가 세가지 파트로 나누어서 말씀드리겠습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0014 첫번째 백수의 존재론인데요
+- 6rOg66+47IiZ--F8gctGuXmg-0015 우리는 디지털 문명 속에서 살아가고 있습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0016 이 디지털이란게 뭔가요
+- 6rOg66+47IiZ--F8gctGuXmg-0019 저는 가끔 제가 여잔지 남잔지 애인지 어른인지 모를 때가 많습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0020 여러분도 이렇게 정신줄 놓으실 때가 많죠
+- 6rOg66+47IiZ--F8gctGuXmg-0021 그게 어떻게 보면 되게 자연스러운 겁니다
+- 6rOg66+47IiZ--F8gctGuXmg-0022 그런데 그렇게 모든 것이 흔들린다면
+- 6rOg66+47IiZ--F8gctGuXmg-0023 직업도 그렇지 않겠습니까
+- 6rOg66+47IiZ--F8gctGuXmg-0024 그래서 지금도 많은 것을 사실 기계가 다 해결하고 있습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0025 앞으로는 더더욱 기계가 더 많은 일을 하게 될 겁니다
+- 6rOg66+47IiZ--F8gctGuXmg-0026 그러면 기본적으로 일자리가 더 늘어날 수는 없습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0027 그렇다면 우리나라 뿐이 아니라 전 세계가 백수로 넘쳐나게 되겠죠
+- 6rOg66+47IiZ--F8gctGuXmg-0028 청년백수는 기본이고요
+- 6rOg66+47IiZ--F8gctGuXmg-0029 중년백수
+- 6rOg66+47IiZ--F8gctGuXmg-0030 그리고 직업을 계속 가지고 계시다고 하더라도
+- 6rOg66+47IiZ--F8gctGuXmg-0032 정년백수도 있습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0034 삶의 어떤 단계인 것이죠
+- 6rOg66+47IiZ--F8gctGuXmg-0036 정규직에 올인을 합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0037 대학가는 이유 정규직 공부하는 이유 정규직
+- 6rOg66+47IiZ--F8gctGuXmg-0039 답이 다 정규직이에요
+- 6rOg66+47IiZ--F8gctGuXmg-0040 근데 이건 정말 이상합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0041 어떤 일을 하고 싶다던가
+- 6rOg66+47IiZ--F8gctGuXmg-0043 정규직 자체를 어떻게 열망할 수 있습니까
+- 6rOg66+47IiZ--F8gctGuXmg-0044 이것은 사람이 할 짓이 아닙니다 정말로
+- 6rOg66+47IiZ--F8gctGuXmg-0045 그런데 어느 순간에 그렇게 됐어요
+- 6rOg66+47IiZ--F8gctGuXmg-0046 더 놀라운 거는 그렇게 청춘을 바쳐서 정규직을 얻은 다음에
+- 6rOg66+47IiZ--F8gctGuXmg-0048 그만 두는 사람도 너무 많고 이직률도 너무 많아요
+- 6rOg66+47IiZ--F8gctGuXmg-0050 모두가 정규직을 열망하면서 정규직에 들어가서는
+- 6rOg66+47IiZ--F8gctGuXmg-0051 거기에 붙어있질 않아요
+- 6rOg66+47IiZ--F8gctGuXmg-0053 이게 바로 디지털 시대에 사람 마음의 행로입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0054 이제 사람은 절대로 고정된 무엇에 붙들려 있을 수 없습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0055 하나의 직업에 내가 평생을 종사하겠다
+- 6rOg66+47IiZ--F8gctGuXmg-0056 이렇게 할 수 없게 됐습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0057 디지털과 마찬가지로 사람의 마음도 끊임없이 유동합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0058 여기에서 저기로 이 직업에서 저 직업으로
+- 6rOg66+47IiZ--F8gctGuXmg-0059 그리고 무엇보다 집에서 길로 이동을 하기 시작했어요
+- 6rOg66+47IiZ--F8gctGuXmg-0060 그러면 이제 우리가 생각해야 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0061 정말로 우리는 정규직을 열망하는가
+- 6rOg66+47IiZ--F8gctGuXmg-0062 그리고 그 정규직이 내 삶의 어떤 무게중심이 될 수 있는가
+- 6rOg66+47IiZ--F8gctGuXmg-0063 그래서 가장 중요한 거는
+- 6rOg66+47IiZ--F8gctGuXmg-0064 이제 백수라고 하는건 특별한 삶의 조건이거나
+- 6rOg66+47IiZ--F8gctGuXmg-0065 열등하거나 비정상적인 상태가 아니라는 거죠
+- 6rOg66+47IiZ--F8gctGuXmg-0066 아주 자연스러운 존재의 표현 형식
+- 6rOg66+47IiZ--F8gctGuXmg-0067 이렇게 이야기 할 수 있습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0068 그래서 저는 정치경제학적으로
+- 6rOg66+47IiZ--F8gctGuXmg-0069 백수는 인류의 미래다
+- 6rOg66+47IiZ--F8gctGuXmg-0072 그러면 이게 시대가 낳은 불가피한 산물인가
+- 6rOg66+47IiZ--F8gctGuXmg-0073 그렇다면 사람은 원초적으로 직업과 노동을 열망한다고 전제해야 맞겠죠
+- 6rOg66+47IiZ--F8gctGuXmg-0074 정말로 그렇게 직업과 노동을 원하십니까
+- 6rOg66+47IiZ--F8gctGuXmg-0075 절대 그럴리가 없습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0076 사람은 원초적으로 노는걸 좋아합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0077 그런데 제가 오랫동안 백수로 살면서
+- 6rOg66+47IiZ--F8gctGuXmg-0078 백수는 직업이 없는게 아니라 직업을 스스로 만드는 존재다
+- 6rOg66+47IiZ--F8gctGuXmg-0080 그래서 저는 고전평론가라는 직업을 만들어서 저에게 부여했습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0082 굳이 가질려고 하지 마세요 어디 들어가서
+- 6rOg66+47IiZ--F8gctGuXmg-0083 그랬는데 제가 동서양 고전을 쭉 섭렵하다가 놀라운 사실을 발견했어요
+- 6rOg66+47IiZ--F8gctGuXmg-0084 제가 너무너무 좋아하고 제 인생의 모든 것을 다 걸고도 배우고 싶은
+- 6rOg66+47IiZ--F8gctGuXmg-0085 고전의 스승들은 모두 다 백수 출신이라는 거에요
+- 6rOg66+47IiZ--F8gctGuXmg-0087 공자는 주유천하하면서 너무 많은 이력서와 오디션을 봤어요
+- 6rOg66+47IiZ--F8gctGuXmg-0088 다 떨어졌어요
+- 6rOg66+47IiZ--F8gctGuXmg-0090 그러나 어떤 결핍과 박탈감도 없이 기꺼이 백수의 길을 갔습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0091 그래서 인류의 스승이 됐습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0092 백수로 살았을 뿐인데 그걸 모든 사람들이
+- 6rOg66+47IiZ--F8gctGuXmg-0093 지금 논어 없으면 동아시아는 다 쓰러집니다
+- 6rOg66+47IiZ--F8gctGuXmg-0094 살아갈 수가 없어요
+- 6rOg66+47IiZ--F8gctGuXmg-0095 길이 없는데 어떻게 살아갑니까
+- 6rOg66+47IiZ--F8gctGuXmg-0099 근데 사대부는 어떤 집단이죠
+- 6rOg66+47IiZ--F8gctGuXmg-0100 직업을 갖지 않는 집단입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0101 과거를 봐서 관료가 되거나
+- 6rOg66+47IiZ--F8gctGuXmg-0102 그렇게 공적으로 헌신하지 않으면 책을 보면서 놀아야 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0103 장사를 하거나 밭을 갈거나 공쟁이를 하면 이건 반칙이에요
+- 6rOg66+47IiZ--F8gctGuXmg-0107 파고다 공원 근처를 주름잡던 바로 백수지성의 원조 입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0113 동네도 비슷해요 심지어
+- 6rOg66+47IiZ--F8gctGuXmg-0115 그런데 또 서양 고전을 읽다 보면 소크라테스나 디오게네스 같은
+- 6rOg66+47IiZ--F8gctGuXmg-0116 서양 철학사의 현자들도 전부 다 자유인 출신입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0117 자유인이 뭡니까
+- 6rOg66+47IiZ--F8gctGuXmg-0118 직업을 갖지 않는 존재입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0120 노예는 아주 확실한 정규직입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0121 평생동안 하나의 직업을 갖고 더구나 세습까지 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0122 그거보다 더 안정된 직장이 어디있겠어요
+- 6rOg66+47IiZ--F8gctGuXmg-0123 그거로부터 자유로운 존재가 바로 자유인이었습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0124 그럼 자유인은 놀아야 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0126 온갖 구박을 받겠죠
+- 6rOg66+47IiZ--F8gctGuXmg-0127 그래서 광장으로 나옵니다
+- 6rOg66+47IiZ--F8gctGuXmg-0128 광장에 나와서 무엇을 합니까
+- 6rOg66+47IiZ--F8gctGuXmg-0129 철학을 합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0130 그게 바로 서양 사상의 토대를 만든
+- 6rOg66+47IiZ--F8gctGuXmg-0131 백수 지성의 화려한 향연이라고 할수 있죠
+- 6rOg66+47IiZ--F8gctGuXmg-0132 백수로 집안에서 분위기가 안 좋은 분들
+- 6rOg66+47IiZ--F8gctGuXmg-0133 광장으로 나오세요
+- 6rOg66+47IiZ--F8gctGuXmg-0134 소크라테스가 될 수 있고 공자가 될 수 있습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0135 그러면 이런게 무엇을 말하는 걸까요
+- 6rOg66+47IiZ--F8gctGuXmg-0136 그게 바로 인간의 원초적 욕망은 직업으로부터 자유롭고자 한다는 겁니다
+- 6rOg66+47IiZ--F8gctGuXmg-0137 그런데 자본주의에 와서 유독 노동에 대한 예찬과 직업에 대한 열광이 생겼습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0138 왜 그럴까요
+- 6rOg66+47IiZ--F8gctGuXmg-0139 삶을 위해서 아닙니다 인간을 위해서 아닙니다
+- 6rOg66+47IiZ--F8gctGuXmg-0140 화폐의 증식을 위해서 입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0142 사람들이 태어나서 죽을 때까지 노동을 열망해야 합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0147 돈을 많이 벌어서 나중에 자유롭게 세계를 여행하고 친구를 만나고
+- 6rOg66+47IiZ--F8gctGuXmg-0148 그 다음에 인생과 우주에 대해서 배우고 싶어
+- 6rOg66+47IiZ--F8gctGuXmg-0149 바로 백수가 하는 일입니다 바로 그게
+- 6rOg66+47IiZ--F8gctGuXmg-0152 있는 그대로 지금 말씀드린거고 있는 그대로 믿으셔야 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0153 그러면 이제 세번째 백수의 윤리학인데요
+- 6rOg66+47IiZ--F8gctGuXmg-0154 왜 정규직을 얻고 싶어합니까
+- 6rOg66+47IiZ--F8gctGuXmg-0157 그러면 연애를 해서 뭐합니까
+- 6rOg66+47IiZ--F8gctGuXmg-0158 결혼을 해요
+- 6rOg66+47IiZ--F8gctGuXmg-0159 결혼을 하면 그때부터 스위트홈이 이루어질꺼라고 생각하는데
+- 6rOg66+47IiZ--F8gctGuXmg-0160 사실 지옥이 시작이 되죠
+- 6rOg66+47IiZ--F8gctGuXmg-0161 멜로의 다음 버전은 막장 드라마입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0162 그걸 잊지 마세요
+- 6rOg66+47IiZ--F8gctGuXmg-0163 그 다음에 더 큰 집 더 좋은 차 더 높은 연봉을 얻었어요
+- 6rOg66+47IiZ--F8gctGuXmg-0165 그 다음에 뭘 합니까
+- 6rOg66+47IiZ--F8gctGuXmg-0166 자식을 낳아서 다시 그 레일에 올라오게 합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0167 똑같은 것을 반복하는 거죠
+- 6rOg66+47IiZ--F8gctGuXmg-0168 이게 바로 소유와 증식이라고 하는 삶의 척도입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0169 무수히 더 많은 걸 가져야 되고 더 누려야 되고 더 빨리 더 넓게
+- 6rOg66+47IiZ--F8gctGuXmg-0170 도대체 무엇을 위해 달려가는 지도 모른 채
+- 6rOg66+47IiZ--F8gctGuXmg-0171 소유와 증식을 향해 달려갑니다
+- 6rOg66+47IiZ--F8gctGuXmg-0172 설국열차에서 보셨죠
+- 6rOg66+47IiZ--F8gctGuXmg-0175 그래서 소유와 증식을 끊임없이 추구했는데 결과가 뭡니까
+- 6rOg66+47IiZ--F8gctGuXmg-0176 삶의 번뇌와 몸의 질병입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0177 그것이 우리에게 어떤 것도 주지 않았어요
+- 6rOg66+47IiZ--F8gctGuXmg-0179 그 반복은 삶의 새로운 가치를 생성시키지 못합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0181 이것을 우리가 인류의 미래라고 미래적 비전이라고
+- 6rOg66+47IiZ--F8gctGuXmg-0182 누구도 말할 수 없을 겁니다
+- 6rOg66+47IiZ--F8gctGuXmg-0183 그러면 앞으로 인류의 비전은 이렇게 바뀌어야 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0184 소유에서 자유로 증식에서 순환으로
+- 6rOg66+47IiZ--F8gctGuXmg-0185 이미 문명사적으로 그렇게 축이 이동을 했거든요
+- 6rOg66+47IiZ--F8gctGuXmg-0186 그렇다면 백수는 존재 자체가 자유고 순환입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0187 더이상 사회를 위해 뭐 안 하셔도 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0188 그냥 그 자체가 문명의 대 비전탕구에 서있는 거에요
+- 6rOg66+47IiZ--F8gctGuXmg-0189 그러면 백수는 무엇을 하냐
+- 6rOg66+47IiZ--F8gctGuXmg-0190 자기를 온전히 배려하는 일만 하면 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0193 이것이 주는 자유가 얼마나 대단합니까
+- 6rOg66+47IiZ--F8gctGuXmg-0194 많은 걸 가질수록 책임과 부담과 의무는 무한히 같이 증대합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0195 무엇을 위해서 그렇게 짐을 지고 걸어가는 것이죠
+- 6rOg66+47IiZ--F8gctGuXmg-0196 이런 것을 이미 인류는 몇 천년 전부터 갈고 닦았습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0197 서양 그리스 로마에서는 이것을 자기배려의 윤리라고 했고
+- 6rOg66+47IiZ--F8gctGuXmg-0198 동양에서는 양생술이라고 했습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0199 그러면 구체적으로 제가 말씀을 드릴까요
+- 6rOg66+47IiZ--F8gctGuXmg-0200 우리는 물질적으로 풍요롭기 때문에 굉장히 많은 공공자산을 갖게 됐습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0203 그러면 내가 백수라고 합시다
+- 6rOg66+47IiZ--F8gctGuXmg-0205 아침에 일어나서 도시락을 싸세요
+- 6rOg66+47IiZ--F8gctGuXmg-0206 그 다음에 걸어서 가장 가까이에 있는 공공도서관으로 가세요
+- 6rOg66+47IiZ--F8gctGuXmg-0207 거기에 뭐가 있습니까
+- 6rOg66+47IiZ--F8gctGuXmg-0208 책과 요즘은 다 인문학 강의가 있습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0214 그 다음에 어떤 기계에 의존하지 않고 내 두발로 걸어갑니다
+- 6rOg66+47IiZ--F8gctGuXmg-0216 걸을 수 있는 권리를 누리세요 걸을 수 있는 권리
+- 6rOg66+47IiZ--F8gctGuXmg-0217 많이 가질 수록 우리는 신체가 무력해지는 걸 이미 충분히 경험했습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0219 내 다리를 쓸모없게 만드는데요
+- 6rOg66+47IiZ--F8gctGuXmg-0220 백수는 이런거 걱정할 필요 없어요
+- 6rOg66+47IiZ--F8gctGuXmg-0221 그냥 가세요 돈이 없기 때문에 그냥 걸어가세요
+- 6rOg66+47IiZ--F8gctGuXmg-0222 그러면 그 하루를 가장 고귀하게 살 수 있습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0223 인류가 원하는 최고의 삶을 연출할 수 있는 것이죠
+- 6rOg66+47IiZ--F8gctGuXmg-0227 그 다음에 할 수 있는 건 뭐냐
+- 6rOg66+47IiZ--F8gctGuXmg-0228 백수들끼리의 연대와 네트워크 입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0229 거기 가면 많이 있습니다 청년백수 중년백수 정년백수
+- 6rOg66+47IiZ--F8gctGuXmg-0230 나이 신경 쓸 거 없어요
+- 6rOg66+47IiZ--F8gctGuXmg-0232 어떤 것도 다 넘나들 수 있는 시대가 됐거든요
+- 6rOg66+47IiZ--F8gctGuXmg-0233 그래서 네트워크 하세요 알바에 대한 정보를 주고 받든지
+- 6rOg66+47IiZ--F8gctGuXmg-0234 아니면 정말 철학을 가지고 일 년 동안 같이 공부를 하든지
+- 6rOg66+47IiZ--F8gctGuXmg-0235 그 무엇이든 할 수 있습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0236 이런 관계 안에서 무엇이 생성됩니까
+- 6rOg66+47IiZ--F8gctGuXmg-0237 새로운 윤리적 가치가 생성됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0238 그 가치의 핵심은 뭐냐
+- 6rOg66+47IiZ--F8gctGuXmg-0240 두 번째 스위트홈이라는 망상에서 벗어나서
+- 6rOg66+47IiZ--F8gctGuXmg-0241 다양한 인간관계의 지도가 그려져야 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0242 백수 못지 않게 앞으로 미래를 이끌어 가는 건 솔로Solo입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0243 일 인 가족이 조만간 몇 백만 천만에 이를 겁니다
+- 6rOg66+47IiZ--F8gctGuXmg-0244 백수면서 솔로면 완벽하죠
+- 6rOg66+47IiZ--F8gctGuXmg-0246 살 필요도 없고 살 수도 없게 됐습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0247 나오세요
+- 6rOg66+47IiZ--F8gctGuXmg-0248 그러면 거기 무수히 다른 종류의 패밀리가 기다리고 있습니다
+- 6rOg66+47IiZ--F8gctGuXmg-0249 그러면 무엇을 합니까 이제 소유와 증식이 아니니깐
+- 6rOg66+47IiZ--F8gctGuXmg-0250 우정과 지성을 통해서 소통과 순환의 기예를 터득하는 거죠
+- 6rOg66+47IiZ--F8gctGuXmg-0251 이것은 인류가 공자 이후 소크라테스 이후
+- 6rOg66+47IiZ--F8gctGuXmg-0252 몇 천년 동안 갈고 닦고자 했던 삶의 경지입니다
+- 6rOg66+47IiZ--F8gctGuXmg-0253 정규직은 이렇게 할 시간이 없어요
+- 6rOg66+47IiZ--F8gctGuXmg-0255 그렇다면 이제 백수가 이런 윤리를 새로 이끌어 내서
+- 6rOg66+47IiZ--F8gctGuXmg-0256 고생하는 정규직에게 좀 나누어 줘야 됩니다
+- 6rOg66+47IiZ--F8gctGuXmg-0257 그런 점에서 정말 앞으로 인류의 미래는 백수라고 저는 단언합니다
+- 6rOg66+47IiZ--F8gctGuXmg-0258 감사합니다

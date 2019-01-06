@@ -1,0 +1,94 @@
+### Sebasi Open Corpus: (Kor) 세바시 25회 서로 마주 보는 것이 재능나눔입니다 | 가수 박혜경
+
+- Speaker: 박혜경
+- Gender: 
+- Length: 4:36 in 81 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=4DDs6nG5DaA] (https://www.youtube.com/watch?v=4DDs6nG5DaA)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 67CV7Zic6rK9-4DDs6nG5DaA-0001 안녕하세요 박혜경입니다
+- 67CV7Zic6rK9-4DDs6nG5DaA-0002 저는 강연하러 오지않았고요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0004 함께 하기 위해서
+- 67CV7Zic6rK9-4DDs6nG5DaA-0005 오늘 만나 뵙게 돼서 너무 기쁘고요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0008 그래서 15분에 세상을 바꿀 수 있는 에너지와
+- 67CV7Zic6rK9-4DDs6nG5DaA-0009 깊은 감동을 만들어 갈 수 있는
+- 67CV7Zic6rK9-4DDs6nG5DaA-0010 그런 시간이 됐으면 좋겠습니다
+- 67CV7Zic6rK9-4DDs6nG5DaA-0011 어 재능 기부라는 말을 가지고 저한테 많은 질문을 해요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0013 그래서 저도 물어보고 싶어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0017 제가 가지고 있는 재능을 남들을 위해서 쓸 수 있게 봉사하는 것
+- 67CV7Zic6rK9-4DDs6nG5DaA-0023 네 감사합니다
+- 67CV7Zic6rK9-4DDs6nG5DaA-0030 특별한 재능이 필요 없는 거예요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0031 네 그냥 옆에 가는 친구가 밤길이 무섭다고 하면요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0032 손잡아 주는 거예요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0033 네 특별한 재능이 필요 없어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0035 너무 쓸쓸해 혼자 밥 먹기 싫어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0036 그럼 그 친구랑 같이 밥 먹어 주는 게 재능기부예요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0038 재능 나눔이라고 생각해요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0040 저는 제 생각은 그래요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0043 장애를 가진 친구들이랑 영화관에 갔어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0044 영화를 막 보러 갔어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0055 이렇게 내려왔어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0061 디자인 이렇게 하지 않았을 것 같다는 생각을 했어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0065 그럼 그런 걸 좀 알려야 되겠다
+- 67CV7Zic6rK9-4DDs6nG5DaA-0073 어 나의 도움이 필요한 친구들을 자연스럽게
+- 67CV7Zic6rK9-4DDs6nG5DaA-0074 인지하게 되는 거예요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0076 어린 친구였다 치면 청소년이 커서
+- 67CV7Zic6rK9-4DDs6nG5DaA-0077 그런 경험이 있거나 내 친구가 몸이 좀 불편하다고 했을 때
+- 67CV7Zic6rK9-4DDs6nG5DaA-0080 설계를 할 수 있지 않을까요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0081 그런 생각을 저는 했어요 그래서 재능 나눔은
+- 67CV7Zic6rK9-4DDs6nG5DaA-0082 똑같이 섞여서 자연스럽게 생활 속에서 이루어지는
+- 67CV7Zic6rK9-4DDs6nG5DaA-0085 누구를 위해서 미술을 가르쳐줘야 되겠다가 아니라
+- 67CV7Zic6rK9-4DDs6nG5DaA-0088 그렇지 않아도 내 몸에 내 생활에 내 마음속에
+- 67CV7Zic6rK9-4DDs6nG5DaA-0090 자연스럽게 버스 타고 같이 밥 먹는 것처럼
+- 67CV7Zic6rK9-4DDs6nG5DaA-0092 꼭 우리가 어느 날 잡아서 사람들을 모아서
+- 67CV7Zic6rK9-4DDs6nG5DaA-0095 자연스럽게 몸에 베지 않을까
+- 67CV7Zic6rK9-4DDs6nG5DaA-0097 이런 생각을 하기 시작했어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0098 그래서 하다가 레몬트리 공작단도 만들고
+- 67CV7Zic6rK9-4DDs6nG5DaA-0100 야저기도 가다 보니
+- 67CV7Zic6rK9-4DDs6nG5DaA-0101 그 사람들 이요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0102 저보다 더 많은 사람들을 전파 시키는 거예요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0108 멀리 가지 마시고요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0110 힘드시다면요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0111 내가 서있는 이 자리 반경 1Km 안에
+- 67CV7Zic6rK9-4DDs6nG5DaA-0112 내 주변 사람들에게
+- 67CV7Zic6rK9-4DDs6nG5DaA-0113 외로울 때같이 마음을 공유하고
+- 67CV7Zic6rK9-4DDs6nG5DaA-0114 힘들 때 손을 잡아주고
+- 67CV7Zic6rK9-4DDs6nG5DaA-0115 어려울 때 안아주고 관심 가져 주는 것
+- 67CV7Zic6rK9-4DDs6nG5DaA-0116 그게 재능 나눔이라고 생각합니다
+- 67CV7Zic6rK9-4DDs6nG5DaA-0126 이쪽으로 오세요 계단 없나요 그냥 올라오셔야 되겠다
+- 67CV7Zic6rK9-4DDs6nG5DaA-0127 안녕하세요 자기소개 부탁드릴게요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0128 마이크 켜져 있어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0138 혜경  이 노래를 아시면 아시는 데로 혼자서 그냥 불러보세요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0144 ♬잠자는 나를 깨우고 가네요♬
+- 67CV7Zic6rK9-4DDs6nG5DaA-0146 ♬어쩌면 당신은 장미를 닮았네요♬
+- 67CV7Zic6rK9-4DDs6nG5DaA-0162 이 노래 지금 저랑 여긴 생방송이고요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0177 ♬당신에게선 꽃내음이 나네요 잠자는 나를 깨우고 가네요♬
+- 67CV7Zic6rK9-4DDs6nG5DaA-0188 혜경  어떻게 다르게 부르셨는지 보셨어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0207 어 저는 노래하는 사람이니까
+- 67CV7Zic6rK9-4DDs6nG5DaA-0210 네 그냥 혼자 노래 부르는 거랑
+- 67CV7Zic6rK9-4DDs6nG5DaA-0211 저랑 노래같이 부르는 거랑 달랐어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0212 노래는 비록 어쩌면 혼자 부르는 게
+- 67CV7Zic6rK9-4DDs6nG5DaA-0214 혼자 누가 간섭하는 사람도 없으니까
+- 67CV7Zic6rK9-4DDs6nG5DaA-0215 근데 제가 사랑하는 여자랑 생방송에
+- 67CV7Zic6rK9-4DDs6nG5DaA-0217 이 분은 자기의 목소리를 조금 낮추고 가사만을 보지 않고
+- 67CV7Zic6rK9-4DDs6nG5DaA-0220 그랬어요 그쵸 보셨죠
+- 67CV7Zic6rK9-4DDs6nG5DaA-0221 누가 재능 나눔이 뭐냐고 물어보면
+- 67CV7Zic6rK9-4DDs6nG5DaA-0222 저는 이거를 꼭 보여주고 싶었어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0224 그리고 하모니를 이루기 전에 나를 받아 주는 것
+- 67CV7Zic6rK9-4DDs6nG5DaA-0225 가수 박혜경을 몰랐던 저분이 나를 받아줬어요
+- 67CV7Zic6rK9-4DDs6nG5DaA-0228 저분은 제가 원하는 것을 깊이 받아들여줬고
+- 67CV7Zic6rK9-4DDs6nG5DaA-0229 그분의 마음을 열어서 내가 원하는 대로
+- 67CV7Zic6rK9-4DDs6nG5DaA-0230 나하고 하모니를 맞추기 위해서 자기 것을 조금
+- 67CV7Zic6rK9-4DDs6nG5DaA-0232 나하고 절묘한 하모니를 연습도 안 했는데 맞추기 위해서
+- 67CV7Zic6rK9-4DDs6nG5DaA-0235 저분을 남자로서가 아니에요 절대
+- 67CV7Zic6rK9-4DDs6nG5DaA-0237 이런 건가 봐 이런 거야 이런 거야 이렇게 느꼈습니다
+- 67CV7Zic6rK9-4DDs6nG5DaA-0238 짧은 시간이었지만
+- 67CV7Zic6rK9-4DDs6nG5DaA-0239 여러분도 여러분의 마음을 열고
+- 67CV7Zic6rK9-4DDs6nG5DaA-0240 누군가를 향해서 나의 무언가를 조금 덜어내고
+- 67CV7Zic6rK9-4DDs6nG5DaA-0243 세상을 아름답게 하는 여러분의 힘입니다
+- 67CV7Zic6rK9-4DDs6nG5DaA-0244 감사합니다

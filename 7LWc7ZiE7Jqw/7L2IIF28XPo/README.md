@@ -1,0 +1,78 @@
+### Sebasi Open Corpus: 최현우 마술사가 알려주는 나만의 크리에이티브, 창의성 찾기 | 세바시 409회
+
+- Speaker: 최현우
+- Gender: 
+- Length: 4:58 in 65 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=7L2IIF28XPo] (https://www.youtube.com/watch?v=7L2IIF28XPo)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0001 네 안녕하십니까 안녕하세요
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0002 마술사 최현우입니다 반갑습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0004 자 오늘 이 세바시에서 여러분과 함께 이 마법과 같은 시간을 잠깐 가져볼까 하고 해서
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0006 저는 직업이 마술사입니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0009 그중에서도 정말 적은 직업군 안에 속해 있는 마술사입니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0010 오늘 여러분께 들려드릴 이야기는 제가 마술사로서 살아온 인생 이야기
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0014 올해 제 나이가 서른 일곱 살 입니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0018 그래서 고등학교 때 마술을 처음에 취미로 시작을 했다가
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0022 왜 하필이면 그 많은 직업 중에 마술사인가요
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0028 마술사인데요
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0030 저는 굉장히 내성적인 성격이었습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0032 그다음에 어디서 여자분이랑 소개팅을 할라 치면은 여자분이
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0036 뭔가 좀 새로운 걸 찾아봐야겠다라고 시작을 해서 한 게 마술이었습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0037 당시에 데이비드 카퍼필드라는 아주 유명한 형님이 계셨습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0045 아 마술을 배우면 여자분들이 굉장히 좋아하겠구나
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0048 그 장미꽃은 나타나는 게 아니라 준비해야 된다는 걸
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0050 그리고 저는 이제 마술을 배우겠다고 결심한 순간부터
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0064 그만큼 끈기나 인내를 아마 보신 게 아닐까 생각이 됩니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0072 이 종류들이 굉장히 다양한데 저는 마술을 해보니까
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0079 자 그래서 이 마술들을 공부를 시작을 해보니까 너무도 즐거웠던 겁니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0080 그리고 사람들이 느끼는 감정 그리고 좀 더 리얼리즘에 가까운
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0081 주변에 있는 걸로 할 수 있구나라는 생각이 들어서 많은 연구를 해왔습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0087 제가 이 중 단 한 장만 여러분의 취향에 맞게 뒤집어놓았습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0088 52장 중 단 한 장만 뒤집어놨습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0090 자 이제 무작위로 시켜보도록 하겠습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0091 어디 보자 자 우선은 저쪽에 앉아 계신 갈색 옷을 입고 계신 남자분
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0100 레드 굳이 영어로 말하지 안 해도 되는데 빨간색이라고 말씀하셨습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0101 정말 빨간색 확신하십니까
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0110 하트와 다이아몬드 중에 어떤 무늬가 뒤집어져 있을까요
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0111 큰소리로 말씀해주십시오
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0121 자 이번에는 마지막 분이 되겠습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0125 2 3 4 5 6 7 8 9 10 중에
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0126 어떤 숫자가 뒤집어져 있을까요
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0129 9 자 그러면 9 하트가 되는데 매우 중요한 역할을 맡았습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0130 정말 본인의 선택에 만족하십니까 아니면 숫자를 바꾸시겠습니까
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0141 정말로 정말로 신기한 일이겠죠
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0147 자 우리나라 사람들은 말이죠 조금만 신기한 게 나오면 놀래지 않고
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0152 자 이것이 바로 카드 마술 멘탈 마술이 결합된 마술입니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0153 저는 이것이 더 마법에 가깝다고 어릴 적부터 생각을 해왔습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0155 그리고 많은 분들이 내 생각은 바꿀 수가 없어
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0156 내 생각을 읽을 수는 없어 라고 생각을 하지만
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0161 아 이거를 어떻게 좀 더 나은 연기로 여러분께 보여드리는 것이 맞을까
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0166 첫 번째 내가 이 전 세계에서 유명해질 수 있던 이유
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0168 연미복을 입지 않았다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0173 오히려 반대로 동물 마술을 하지 않고 이 마술의 다른 쪽에 더 집중했다라고 해서
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0177 그래서 이 틀을 하나씩 하나씩 깨보자 라고 해서 이번에는
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0179 이 연기를 어떻게 하면 바꿀 수 있을까 라는 생각을 해봤습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0183 두 번째 같은 마술을 같은 사람에게 두 번 하지 말 것
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0201 저는 이제부터 여러분이 보는 앞에서 이 물건이 사라지게 될 것입니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0213 두 번째입니다 두 번째는 말이죠
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0218 이게 정말로 가능할까 내가 지금 지켜보고 있는데
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0223 사람들에게 보여주고 있습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0224 자 이제 마지막으로 이 마술은 많은 사람들이
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0225 최현우씨는 어떻게 해서 마술을 계속 하고 있습니까
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0227 마술은 제가 최근에 방송을 많이 해왔었습니다
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0228 근데 매주 1시간 동안 방송을 하는 프로그램이 있었습니다 마술 프로그램
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0229 매주 1시간 동안 제가 마술을 만들어내고 보여주는 프로그램들이
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0239 내가 어릴 적 28살인가 그때 회사를 설립을 하고
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0247 음 자네 그럼 뜻은 뭔가
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0253 자네 꿈이라는 것은 개인적인 욕망의 산물일세
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0256 그것은 이 당신의 소프트뱅크라는 회사가 일본의 통신회사의 허브가 되고
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0257 일본인들이 더 나아가 전 세계인들이 어떤 꿈과 희망을 가지게 된다면
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0259 사람이라면 꿈을 버리고 뜻을 세우게
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0264 근데 제가 여태까지 했던 마술들이 그냥 내가 좋자고
+- 7LWc7ZiE7Jqw-7L2IIF28XPo-0271 아 세상에는 마법이라는 게 존재할지 몰라 이런 생각이 들게 하는 것

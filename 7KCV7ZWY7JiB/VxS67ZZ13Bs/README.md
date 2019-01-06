@@ -1,0 +1,170 @@
+### Sebasi Open Corpus: 오늘도 자소서만 쓰고 있는 당신에게 | 정하영 (주)아이케이 인사팀 | 청년 실업 문제 취준생  | 세바시 945회
+
+- Speaker: 정하영
+- Gender: 
+- Length: 7:59 in 157 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=VxS67ZZ13Bs] (https://www.youtube.com/watch?v=VxS67ZZ13Bs)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0002 안녕하세요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0003 저는 인천에서 온 26살 직장인 정하영이라고 합니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0006 그냥 여러분들과 똑같이 아침에 일어나서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0007 출근해서 컴퓨터 두드리다 퇴근하는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0008 평범한 직장인입니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0009 저는 오늘 여러분들과 공유하고 싶은 게 있어서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0010 떨리지만 이 자리에 나오게 되었습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0011 몇 개월 전까지만 해도
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0012 저는 대학교 4학년 마지막 학기를 다니고 있었어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0013 그 때 제가 뭘 했을까요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0014 저는 취업 준비를 하고 있었어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0015 다들 아시죠
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0016 취업은 그냥 우리 앞에 툭 내던져진 과제처럼
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0017 그냥 우리가 해야하는 그런 거 잖아요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0018 그리고 저는 전공이 교육심리학이기 때문에
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0019 교육 쪽 일을 겸 할 수 있는 업무를 찾다가
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0020 인사 팀에 지원을 하고 있었어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0021 이제 근거도 없이 무조건 취업을 해야한다는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0022 어떤 이유없는 압박에 등 떠밀려서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0023 정말 뭐에 홀린듯이 자기소개서를 쓰고 지원서를 넣었던 것 같습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0024 그런데 진짜 정말 우수수 떨어지더라고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0025 제가 기억하기로는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0026 하루에 20개에서 30개 정도의
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0027 자기소개서를 넣은 적도 있는데
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0028 그렇게 계산해보면 총 1800개 정도는 될 거에요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0029 정말 많죠
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0030 근데 그렇게 지원해서 저는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0031 정말 기적적으로 두 세 군데 합격하게 됩니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0035 이런 경험들을 통해서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0036 제가 개인적으로 드는 생각이 많은데
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0037 이걸 이제 여러분들과 이야기를 나누면서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0038 동세대 여러분들께 조금이나마
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0039 도움이 될 수 있다면 참 좋겠습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0040 여러분 흔히 채용면접 하면 떠오르는 풍경 있으시죠
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0041 일단 채용담당자는 아주 권위적인 모습으로 앉아서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0044 요즘에는 면접유형도 정말 다양해요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0045 역량면접 인성면접 영어면접 토론면접
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0046 그리고 이제 거기에서 부족해 시험까지 보죠
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0047 그래서 이런 생각이 들더라고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0048 저들은 내게서 이렇게 많은 것을 요구하는데
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0050 아무것도 없다는 게 불공평하다는 생각이 들더라고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0051 지원서를 한 1800장 넣고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0053 이런 생각이 들어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0054 나는 언제까지 그들이 원하는 대로만 맞춰야 하는가
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0055 심지어 컨설팅에서는 다 다른 얘기를 하거든요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0056 근데 이렇게 계속 반복되다 보니까
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0057 제 자신이 구직기계라도 된 것처럼 느껴지고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0060 정말 이불 밖은 위험하다더니
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0061 정말 이불 밖은 지옥이었어요 그렇죠
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0062 그러다가 저한테 재미있는 일이 하나 일어났습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0063 인천광역시에서 인스로드라는 사업을 하고 있어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0064 그게 뭐냐면 인천에 소재한 중소기업들을 대상으로 협력을 해서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0065 중소기업 산업 시설에 대한 인식 개선을 하고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0069 솔직히 면접을 보고 심사하는 건 똑같아요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0070 그런데 조금 다른 점이 있었다면
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0071 일단 제가 면접을 보러 갔더니
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0072 바로 면접을 보지 않고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0073 홀에다가 지원자들을 모아 놓더라고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0074 그리고 나서 사장님께서 직접 나오셔서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0075 ppt를 넘겨가면서 회사소개를 해주시더라고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0078 우리 회사 좋다 우리 회사 와라
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0082 어쨌든 그래서 제 입장에서는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0083 제가 회사에 대해서 생각해 볼 수 있는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0084 그런 기회가 주어진 것 같고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0085 회사가 굉장히 오픈되어 있는 느낌을 받았습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0088 그리고 견학을 하고 나서 다시 홀로 돌아와서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0089 직원 분들과 직접 대화도 나눠 볼 수 있었어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0091 아니면 회사에 대해서 궁금한 점을 여쭤볼 수 있었고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0092 그리고 가장 좋았던 건 무엇보다도 면접 팁을 얻었다는게
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0093 가장 좋았던 것 같습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0094 우리 회사는 건설폐기물 중간 처리업을 하는 곳이에요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0095 여러분들 혹시 건설폐기물 업체라고 어떤 이미지가 떠오르시나요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0097 일단 건물이 굉장히 우중충해요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0100 그리고 제대로 된 근무환경이 갖춰져 있을까
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0102 그런 생각이 좀 저한테는 들었었거든요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0104 건물이랑 사무실도 굉장히 깔끔하고 젊은 사람들도 많고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0105 그리고 다들 유쾌하셔서 굉장히 분위기가 좋더라고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0107 아 여기서 일하게 된다면 나에게 좋은 기회가 되겠구나 라는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0108 판단을 할 수 있었습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0109 저는 이곳에서 함께 즐겁게 일할 동료들을 만났고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0110 그리고 저에게 차근차근 업무를 알려주시는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0111 좋은 선배님을 만났습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0112 저는 브랜드를 얻지는 못했지만
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0113 좋은 사람들은 확실하게 얻은 거 같아요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0115 나에게 찾아온 좋은 기회를 보지 못 할 수도 있어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0116 그리고 한 가지 더 말씀드릴게
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0117 저희 인사팀에 선배가 몇 명이 있을까요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0119 한 명 있습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0121 그 분이 인사팀 팀장이세요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0122 그러면 그 분을 제외한 나머지 인사팀 직원은 몇 명 일까요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0124 사실 이렇게 얘기하면 친구들이 다 놀라요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0125 근데 오히려 인원이 적어서 해 볼 수 있는 일이 많습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0129 그만큼 많은 거고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0130 그리고 개인적인 역량을 키우기에도
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0131 참 좋은 기회인 것 같습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0132 그러면 좀 다른 이야기로 한 번 넘어가 볼게요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0133 제가 자소서를 몇 번 바꿨다고 했죠
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0134 네 수백번 바꿨습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0135 그리고 컨설턴트는 다 다른 이야기를 해요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0136 그런데 그분들도 사실 대기업 다니는 거 아니에요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0137 그렇죠
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0138 그 분이 세상 모든 채용담당자들의 심리를 다 아는 게 아니에요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0139 저는 IK에 합격하면서 크게 깨달은 점이 하나 있습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0140 제가 인사팀에 지원을 할 때
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0142 그걸 잘 한다라고 이야기를 했을 때
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0144 그런데 이 회사에서는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0145 제가 교육업무를 하고 싶고 그걸 잘 한다라고 이야기해서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0146 그게 필요해서 저를 받았습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0147 우리가 대학입시를 준비하실 때 다들 기억하시나요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0149 마치 우리도 이제 남은 인생을 성공하려면
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0151 막 그런 것처럼 생각하지는 않으셨나요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0152 누군가가 이게 성공이다 이게 답이다 라고 규정을 해 놓으면
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0153 그것만을 답으로 생각하고 열심히 좇진 않았는가
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0154 하는 생각이 들더라고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0156 취업 준비하는 기간이 저한테도 참 고통스러웠어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0157 정말 방구석에 앉아서 자기소개서만 썼거든요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0158 그리고 아무래도 학교를 다니면서 준비를 하다 보니까
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0159 공강시간만 되면
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0161 자기소개서를 쓰다가 다음 강의를 가고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0162 그리고 집에 오면 또 컴퓨터 켜서 자기소개서 쓰고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0163 그런 생활만 반복을 했는데 아무리 해도 들리는 말은 항상
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0164 이걸로는 안 된다 더 해라 라는 말 뿐이었어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0165 그러다보니까 너무 끝이 없고 고독해지더라고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0166 그래서 정말 이 기간이 언제 끝날지도 알 수가 없고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0167 불안하고 막막한 생활을 보내고 있었을 때
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0168 저에게 힘이 되어 준 건
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0171 다른 사람의 말에 너무 휘둘리지 말아라
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0172 그러면 너 자신의 가치를 잃게 될 것이다 라고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0173 말씀을 하셨어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0174 너를 바꿔야 한다라는 컨설턴트의 말과
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0175 그리고 내가 사랑하는 그리고 나를 사랑해주시는
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0177 저는 부모님의 말을 듣긴 했지만 컨설턴트의 말을 믿었어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0181 그럴 때 가장 중요한 게
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0182 나의 가치를 잃지 않는 거더라고요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0183 그러려면 나를 사랑해주는 사람들이
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0184 해주는 진심어린 말을 믿어주세요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0185 그분들은 당신의 가치를 알고 있습니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0186 그리고 여러분은 언젠가 반드시
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0187 여러분의 가치를 인정하는 곳에 찾아가게 될 거에요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0188 제가 IK에 취칙이 되고나서 든 느낌은 해방감이었어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0189 이왕 해방되는 거 해방되고 나서
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0190 내 가치를 인정해주는 곳에 가서 일하는 게 더 기분 좋지 않겠어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0191 사실 저도 아직 입사한 지 반년 밖에 되지 않았기 때문에
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0192 아직 갈 길이 멀었어요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0194 저도 이제 앞으로 저 자신을 계속해서 증명해 나가야 합니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0195 아직 갈 길이 멀었죠
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0196 하지만 그게 쉽지 않을 거라는 것도 알지만
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0197 그래도 일 할 맛이 나요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0198 여러분들도 쉽지 않겠지만
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0199 그래도 일 할 맛이 나는 곳에서 일을 하게 되실 겁니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0201 불안하고 막막하고 힘들지만
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0202 그래도 내 가치를 인정받을 수 있는 곳으로 가세요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0203 그리고 여러분이 사랑하는 사람들이
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0204 여러분이 그 길을 끝까지 걸을 수 있도록 도와 줄 겁니다
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0205 그러니까 끝까지 나 자신의 가치를 잃지 말고
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0206 주변의 수많은 말에 휘둘리지 말아주세요
+- 7KCV7ZWY7JiB-VxS67ZZ13Bs-0207 감사합니다

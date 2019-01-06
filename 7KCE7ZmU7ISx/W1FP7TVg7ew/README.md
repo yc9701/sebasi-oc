@@ -1,0 +1,146 @@
+### Sebasi Open Corpus: (Kor) 세바시 493회 다윗처럼 시장을 선택하라 | 전화성 씨엔티테크 대표
+
+- Speaker: 전화성
+- Gender: 
+- Length: 6:21 in 133 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=W1FP7TVg7ew] (https://www.youtube.com/watch?v=W1FP7TVg7ew)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0002 안녕하십니까 고객님
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0004 제 이름이 전화성이잖아요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0006 2010년 월드컵 그리스전인가에
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0008 24만통입니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0010 여러분들이 미스터 피자 전화하시든 도미노 피자 전화하시든
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0011 버거킹 롯데리아 BBQ 페리카나 놀부 원할머니보쌈
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0012 한 70개 정도 되는데요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0013 어디 전화하시든지 저희 직원들이 전화를 받고요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0014 또 인터넷 주문을 하시면은
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0016 모바일 주문도 마찬가지입니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0018 한 반 정도가 아직도 콜센터 상담사들이 처리를 하고 있거든요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0019 사람이 하는 일이다 보니까 가끔 실수를 할 때가 있습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0020 지난 8월 29일이 제 생일이었습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0023 오늘 왠지 나한테 좋은 일이 생길 것 같다 기대를 하게 되죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0027 처음으로 휴게소에 들러서 첫 식사를 했습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0028 점심 때 호두과자가 점심이었었거든요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0030 서울로 올라와서도 마지막 미팅이 이스라엘에서 온 손님이셨는데
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0031 10시 오후 10시가 미팅이었었고
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0032 굉장히 차가 막히는 길이었지만
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0036 10시에 손님들을 만나고 그리고 그날 운전을 하면서
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0037 비가 오면은 여러분들 배달음식 많이 시키시잖아요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0043 정말 숨가쁘고 힘든 하루였었죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0047 ‘야 빨리 들어가서 아이들과 남은 10분이라도 잘 보내보자’ 라고 하는데
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0048 11시 55분에 갑자기 전화가 왔습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0049 모르는 핸드폰이더라구요 전화를 딱 받았더니
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0052 상담사의 실수로 한 시간 동안 치킨을 못 받으신 거에요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0053 사람이 좀 배고프면은 좀 짐승의 본능이 나오잖아요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0055 여러분들 보통 배달 주문하다 보면은
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0061 제가 그 전화를 받고
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0062 죄송합니다만 한 200번을 한 것 같습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0063 ‘죄송합니다 죄송합니다’
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0064 한 200번 ‘죄송합니다’가 끝나고 보니까
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0066 다음 날 새벽 1시 8분 정도 됐던 시간이었습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0074 고통을 감당할 수 있는 그릇
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0076 점점 이제 ‘그릇이 커지고 있다’ 라고 표현할 수 있는 부분은
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0077 내가 고통을 감당할 수 있는 그릇이 커지고 있다’
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0079 여러분들께 오늘 드리고 싶은 말씀은
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0080 어떻게 하면 기업을 시작할 수가 있는가
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0083 많은 스타트업 기업들이
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0084 어떻게 아이템을 찾아요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0088 실리콘밸리에서
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0089 애플의 CMO출신이
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0093 3번과 4번입니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0097 그게 3번이고
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0098 4번은
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0101 이 3번 4번이 가장 중요한 부분입니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0102 사업의 시작이자 핵심이라고 볼 수가 있습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0103 이건 아마 한번쯤은 그려보셨을 수도 있습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0104 비즈니스 캔버스라는 겁니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0108 역시 핵심은 저 두 칸인데요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0110 어떤 가치를 줄 거야
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0112 어떤 시장인데
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0113 거꾸로 말씀을 드리자면
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0115 어떤 고객한테 어떤 가치를 줄거야
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0116 아까 문제 관점에서 해석을 하자면은
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0117 누구의 어떤 문제를 어떻게 해결해 줄꺼야
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0119 이 아이디어를 발굴하기 위해서는
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0120 문제에 몰입을 해야됩니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0121 문제에 몰입을 짧게 할 수도 있지만 길게 할 수도 있죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0122 얼마 전에 두 개의 사업계획서를 검토한 적이 있었었는데
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0123 첫 번째 사업계획서는
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0124 10년차 소프트웨어 개발자가
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0126 또 하나의 사업계획서는
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0127 30년 동안 청소하신 분이 있습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0130 4 5층 정도의 중대형 건물 청소는 이런 방식으로 하면은
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0131 생산성을 30 올릴 수 있는데
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0134 그래서 이 청소하는 방식을 가지고 나 사업을 하고 싶어’
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0135 어떤 문제가 있길래 그 청소하는데 시간이 그렇게 더 걸리나요 그랬더니
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0138 그 분은 문제의 본질을 알고 계신 거죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0143 그 문제의 본질을 정확히 알고 있는 분이기 때문입니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0147 내 전문분야가 예를 들어서 법학인데
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0152 이게 바로 사업의 시작입니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0153 그런데 이 정도까지 사업의 아이디어를 발굴한 사람들은 꽤 됩니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0155 그럼에도 불구하고 왜 실패를 할까
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0156 사실 100개의 기업이 나오면
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0159 문제의 본질을 알고 시작을 한 분은 한 열분 정도 됩니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0160 그 중에서도 실패를 한다는 거죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0161 그 이유가 무엇일까
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0164 시장의 정의가 잘못되었기 때문입니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0165 시장에 대해서 제가 제일 좋은 그림을 하나 보여드릴 텐데요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0170 이순신 장군께서 몇 백년 전에 이미 해답을 던져주셨습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0172 12척 가지고 133척을 맞아서 싸웠었죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0176 12척 정도 간신히 줄 설 수 있는 해협을 선택하니까
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0177 133척이 줄 서서 들어와야 되잖아요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0178 좁은 전선에서의 경쟁우위를 유지함으로써
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0181 가지고 있는 자본이
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0184 133척이 아니라 12척 가지고
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0185 1000척이랑 싸워야 될 수도 있다는 것이죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0186 그러면 당연히 내가 감당해야 하는 좁은 전선을 구축을 해야됩니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0190 이것들을 여러 번 해서
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0191 내가 감당할 수 있는 싸울 수 있는 시장을 정의하고
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0193 씨엔티테크도 문제의 본질에서 사업이 시작됐습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0194 제가 2003년 어느 날 피자 광고를 보고 있었습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0207 그럼 이걸 어떻게 솔루션 어떻게 해결을 할까
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0209 실제 홈쇼핑처럼 주문이 폭주하지 않을까
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0214 하루 주문 건수도 물어보고 평균 통화시간도 물어보고
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0215 다 조사를 했습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0219 이 사람들을 한 자리에 다 모아놓고 보니까
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0220 400명이 아니라 150명이 전화를 받을 수가 있었던 겁니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0223 두 번째 생산성
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0226 고객이 자기가 직접 주문해도 되는 걸
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0231 결국 매출은 향상하고 원가는 줄어들고
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0232 그래서 한 프랜차이즈만 잡더라도
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0233 월에 한 3억 정도 부가가치가 만들어 지겠더라구요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0240 너무 어려웠습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0243 우리도 전화를 잘 못 받았습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0248 여기 사진 보시면 제가 전화 받고 있죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0257 이제 어떻게 싸우지
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0258 이순신 장군처럼 싸워야 되는데 어떻게 싸울까
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0262 생계형 프랜차이즈이기 때문에
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0267 역시 시장의 본질 문제의 본질을 알아야 되니까
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0268 제가 여러 번 인터뷰해서 답이 안 나와가지고
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0269 결국은 매장을 차렸습니다 치킨쇼라는 매장을
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0272 하나의 아이디어를 끄집어 낸 겁니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0273 육아 때문에 아내가 집에 들어가 있는 시간
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0274 남편이 혼자 운영할 수가 없으니까 알바를 고용합니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0275 알바를 고용하는 이유는
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0276 배달을 대신시키기 위해서 또는 전단지 붙이기 위해서
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0283 검증을 해냈고 이 솔루션을 잘 다듬어서
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0287 이 역시도 문제의 본질을 경험적으로 몰입해서 알아냈기 때문이라고 생각을 합니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0288 여기 보이시는 것이 씨엔티테크의 거래처죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0289 현재 67개 총 3만 4천개 매장
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0292 우리나라의 외식주문중계 플랫폼
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0293 소상공인들이 정말 즐거워 행복해 하는 플랫폼을 우리는 완성을 했고
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0294 지금도 이 플랫폼을 열심히 운영을 하고 있습니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0297 이 플랫폼은 농축산물 직거래 입니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0298 농가들이 많이 가지고 있는 문제를 해결하는 플랫폼이죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0299 역시 저는 무엇을 해야 될까요
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0300 몰입을 통해서 문제를 알아내야 되겠죠
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0301 제가 전화를 열심히 받았듯이
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0304 이로써 발표를 마치겠습니다 감사합니다
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0306 나에게 있어서 기업가 정신이란
+- 7KCE7ZmU7ISx-W1FP7TVg7ew-0309 기업은 시작보다는 유지하는 과정이 훨씬 어렵습니다

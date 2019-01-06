@@ -1,0 +1,164 @@
+### Sebasi Open Corpus: 사랑한다면 탱고처럼 | 김수영 여행작가 | 사랑 강의 강연 | 세바시 552회
+
+- Speaker: 김수영
+- Gender: 
+- Length: 8:34 in 151 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=EysAiY8Lg8o] (https://www.youtube.com/watch?v=EysAiY8Lg8o)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0003 와 사랑합니다 여러분
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0004 이렇게 열렬하게 환영해 주셔서 정말 감사합니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0006 오늘 주제가 사랑한다면 탱고처럼인데요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0007 사랑은 저에게도 굉장히 낯선 주제였어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0008 아시는 분도 있겠지만
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0009 저는 굉장히 험난한 10대와 치열한 20대를 보냈습니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0011 꿈 목록을 쓰고 그 꿈들을 이루기 위해서
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0012 전 세계의 70여 개국을 굉장히 바쁘게 돌아다녔어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0014 사랑이 제 인생의 우선순위였던 적이 한 번도 없었습니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0015 그렇게 열심히 살아온 끝에
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0016 제가 그토록 원하던 많은 꿈들을 이루게 됐고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0017 제가 그토록 원했던 그런 삶을 살게 된 순간
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0018 그 모든 것이 무너지는 사건이 발생합니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0019 바로 사랑에 빠진 것이죠
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0023 아니 노력을 하면 할수록 더 어긋나는 거예요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0026 심지어는 제가 과거에 만났던 모든 남자들을 찾아가서
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0027 물어보기도 했어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0028 그런데도 회복이 되지가 않아서 저만의 가설을 세웠습니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0029 오로라를 보면 내 마음이 깨끗이 포맷이 될 거야
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0030 그러면 다시 사랑을 할 수 있을 거야
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0031 그래서 그 많은 스케줄을 다 뒤로하고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0032 캐나다의 최북단에 오로라를 보러 갔어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0034 회복이 안 되더라고요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0035 그리고 오히려 의문이 더 많아졌어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0036 그는 도대체 왜 그랬던 걸까
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0037 나는 도대체 왜 그랬던 걸까
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0038 도대체 이놈의 사랑이 뭘까
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0039 그래서 원래는 제가 2011년부터
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0040 전 세계 사람들의 꿈을 인터뷰하는
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0041 드림 파노라마 프로젝트를 진행을 하는데요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0042 그런데 꿈 인터뷰를 하다가도 저도 모르게 사람들에게
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0043 그런데요 혹시 사랑에 빠져보신 적 있으세요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0044 사랑이 뭐라고 생각하세요 하고 묻고 있는 거예요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0047 러브 파노라마 프로젝트를 진행을 했습니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0049 또 전 세계 훈남 만나기 프로젝트를 진행을 했어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0050 그래서 정말 많은 것을 깨닫고 성장하는 계기가 되었는데
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0051 그 얘기를 하자면 저희가 3박 4일을 해도 부족한 관계로
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0052 오늘은 딱 한 가지 이야기
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0053 바로 탱고에 대해서 이야기를 해보려 합니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0054 저는 지구 반대편
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0056 탱고가 굉장히 사랑과 닮은 춤이에요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0057 그래서 어떻게 사랑에 빠지고 사랑을 할 수 있을지를
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0058 이 탱고라는 키워드를 통해서 풀어나가려고 하는데
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0060 여러분이 생각하시는 사랑에 비추어서 생각해보면 좋을 것 같습니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0062 탱고는 남녀가 함께 추는 춤이잖아요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0063 그런데 춤을 같이 출 파트너를 찾기 위해서
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0064 사람들이 이렇게 둘러보다가 눈이 맞는 순간
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0065 남자가 고개를 끄덕이고 여자가 고개를 끄덕이면서
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0066 두 사람은 무대에서 만나서 춤을 추게 됩니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0069 굉장히 민망해 하시네요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0071 눈을 어디에 둬야 될 지를 모르겠더라고요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0073 그 수십 명 수백 명이 정말 찰나의 순간에
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0074 눈을 맞추고 무대에서 만나서 춤을 춥니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0077 두 가지 조건이 성립해야 된다 라는 것을 알았어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0078 바로 매력과 접근 가능성인데요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0080 저기서 세계 최고의 댄서가 나를 이렇게 바라보고 있는데
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0081 제가 애먼 데를 계속 바라보고 있으면 아무 소용이 없어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0082 반대로 이 사람이 나를 계속 바라보고 있는데
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0083 제가 이 사람을 바라보지 않으면 소용이 없겠죠
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0084 그래서 누군가를 바라보지 않으면 우리는 춤을 출 기회도 없어집니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0085 그렇기 때문에
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0086 여러분 혹시 여기 모태솔로 있으세요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0088 제가 까베세오를 보고 나서 연애를 잘하는 친구들을 보니까
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0089 그 친구들은 이렇게 촉이 발달돼 있어 가지고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0092 근데 연애를 못 하는 친구들은요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0093 자기들끼리 모여가지고 이런 얘기를 합니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0094 야 괜찮은 남자들은 다 유부남 아니면 게이다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0097 자기에게 시그널을 보내는 사람을 보지 못하고 있어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0098 그러니까 조금만 더 여러분 주변에 관심을 보여주시고요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0099 그리고 접근만 가능하면 소용이 없죠 매력이 있어야 해요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0100 물론 매력이라는 거는 워낙에 다양한 요소가 있어서
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0101 다 얘기할 순 없겠지만
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0102 그 매력을 완성하는 것은 자신감인 것 같아요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0106 아니면 제발 저를 간택해 주세요 하는 간절한 눈빛으로 바라보면
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0107 고개를 돌린다고 해요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0111 하는 자신감이 있어서 자기도 모르게 고개를 끄덕이게 된다고 합니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0112 우리도 마찬가지로
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0113 자신감 넘치고 자기 자신을 사랑하고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0114 자기 인생을 행복하게 살아가는 사람들에게 끌리죠
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0115 그런 사람이 되려면 여러 가지 방법이 있겠죠
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0116 근데 제가 여기에 계신 분들을 위해서 특별히 마법의 주문을 알려드릴게요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0117 저를 한 번 따라해 보시면 됩니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0122 오 갑자기 내 눈을 바라봐 이런 자신감으로 넘치세요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0124 훨씬 더 매력적인 사람이 될 것 같아요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0125 그럼 이제 우리 본격적으로 까베세오를 해 볼까요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0132 작업
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0133 사람은 역시 자기가 보고 싶은 것만 보는 것 같아요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0134 네 탱고는 한마디로 말해서
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0136 걷는 것을 까미나따라고 합니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0137 그냥 남녀가 함께 걸으면 될 것 같은데 굉장히 쉬워 보이는데
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0138 저는 이게 그렇게 안 되더라고요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0139 제가 다른 춤은 굉장히 빨리 배운 편인데 이게 왜 이렇게 어려울까 하고 보니까
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0141 그래서 남자의 움직임에
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0142 여자가 굉장히 예민하게 한 발짝 한 발짝 같이 움직입니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0143 물론 남자가 여자를 리드한다고 해서
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0145 그게 아니라
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0146 두 사람 다 자신의 무게중심을 잃지 않고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0147 함께 한 발짝 한 발짝 걸어가는데요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0148 만약에 여자가 남자에게 매달리면 여자는 여자대로 온몸에 힘이 들어가고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0149 남자는 그 무게를 지탱해야 되기 때문에 너무나 힘이 들어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0150 그래서 제가 그제서야 깨달았어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0152 이제까지 저는 제가 원하는 방향대로 상대방을 끌고 가려고 하다 보니까
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0153 나도 힘들고 그 사람도 힘들었던 것이 아닌가
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0155 몸에 좀 더 힘을 빼고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0157 조금 더 예민하게 세심하게 반응해 주면서 함께 걸어갔더라면
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0158 좀 더 멀리 갈 수 있었을텐데 하고 깨닫게 되었죠
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0159 그리고 탱고의 꽃은 바로 아브라소 포옹인데요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0160 일단 춤을 추기 시작하면요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0161 이 사람이 얼마나 매력적이고 얼마나 대단한 사람이고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0162 이런 것 따위는 중요하지 않아요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0163 그보다는 이 사람이 얼마나 나를 편안하게 해 주는가
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0164 이 사람과 나의 심장과 심장이
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0165 얼마나 잘 커넥션연결이 되어 있는가가 굉장히 중요해요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0166 여러분 혹시 여러분 힘들게 하는 사람 있어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0167 많은가 봐요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0168 아마 그 사람도 여러분 때문에 힘들 거예요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0170 왜냐하면
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0171 옆 사람을 지금 막 찌르시네요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0172 왜냐하면 사람과 사람의 관계는 액션리액션이거든요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0173 모든 관계는 작용반작용이에요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0174 내가 이 사람을 소중하게 여기고 사랑하면
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0175 이 사람도 나를 똑같이 소중하게 여기고 사랑합니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0176 반대로 내가 이 사람을 아 뭔가가 부족해
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0177 아 저 사람은 왜 저러지 하고 불평스러운 마음을 갖게 되면
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0179 물론 우리 모두는 완벽하지 않아요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0180 그리고 가까워지면 가까워질수록
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0181 그 사람의 결함이나 단점이 장점보다 더 많아 보입니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0182 그럼에도 불구하고 우리가 서로를 끌어안아 줄 때
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0183 우리는 훨씬 더 나은 사람이 될 수 있고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0184 더 큰 가능성을 발휘할 수 있는 것 같아요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0185 물론 이거는 주변 사람들뿐만이 아니라
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0186 우리 사회 곳곳에 마찬가지겠죠
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0187 사랑하는 마음으로 보면 특별하지 않은 사람이 없어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0188 우리 그 사람을 생각하면서 다음 곡 갈까요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0196 그럼에도 불구하고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0199 이토록 아름다운 움직임을 만들 수 있었던 것 같아요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0200 그래서 탱고를 3분 간의 로맨스라고도 하는데요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0201 이렇게 한 사람과 춤을 추는 시간을 딴다라고 합니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0204 그런데 아무리 완전하게 사랑하는 사람이라도
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0205 언젠가는 죽음이 두 사람을 갈라놓듯이
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0206 모든 인연에는 시작과 끝이 있어요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0207 마찬가지로 음악도 이 사랑도 이 딴다도 언젠가는 끝이 납니다
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0208 그것에 대해서 슬퍼할 것도 분노할 것도 없고요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0210 내 심장에 심장을 맞대준 이 사람에게 집중하고
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0211 이 순간을 소중히 여기는 것이겠죠
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0212 이 새로운 음악이 흐르면
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0213 새로운 인연이 새로운 사랑이
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0215 그럼 이제 새로운 딴다를 시작해 볼까요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0218 네 이제까지 공연에 아리스김 류가 저는 김수영이었고요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0220 다들 자리에서 일어나 주세요
+- 6rmA7IiY7JiB-EysAiY8Lg8o-0222 눈이 마주치는 모든 분들을 포옹을 해 주시면 됩니다

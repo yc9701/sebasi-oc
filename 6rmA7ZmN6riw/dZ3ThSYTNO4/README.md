@@ -1,0 +1,113 @@
+### Sebasi Open Corpus: (Kor, Eng) 세바시 87회 샤넬, 유니클로 패션의 두가지 얼굴 | 김홍기 패션큐레이터
+
+- Speaker: 김홍기
+- Gender: 
+- Length: 7:23 in 100 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=dZ3ThSYTNO4] (https://www.youtube.com/watch?v=dZ3ThSYTNO4)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0001 안녕하십니까 패션큐레이터 김홍기입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0002 저는 패션큐레이터입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0003 뭘 하는 직업이냐면 패션을 미술관에서 전시하는 일을 합니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0004 근데 사람들이 이런걸 잘 모르구요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0007 오늘은 여러분들 앞에서 이런 이야기를 한 번 하려고 합니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0011 이런 부탁 참 많이 받습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0012 참 뒤집어 보면 우리는 굉장히 뭐랄까요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0014 인간은 역사에서 언제부터 이렇게 신상을 득템하고 명품을 사는 걸 좋아하게 됐을까
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0017 우리가 왜 이런 것에 홀리는지 이런 역사들을 미술을 통해서 살펴보는 시간을 갖겠습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0018 자 여러분 그림 속의 주인공을 한번 보시죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0022 그래서 항상 자신의 키를 가리기 위해서 힐을 신어야했던
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0023 멋진 스타일리쉬한 군주였습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0027 지금 이 왕의 옷을 한번 보세요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0029 저게 바로 에르민이라고 불리는 흰 담비털입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0030 이 당시만해도 저게 워낙에 고급소재여서요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0031 왕과 종교계의 수장만이 저 소재를 써서 옷을 입을 수가 있었습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0036 그때만해도 물건이라는 것은 오랫동안 사용해서 자연스럽게 인간의 손때가 묻어나오는 것
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0038 하지만 이 루이시대가 되면 사치가 경제를 활성화시킨다라고 하는 철학이 유럽을 휩쓸게 되면서
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0039 사람은 소유물에 대한 철학을 바꾸게 됩니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0040 신상을 많이 사는 것이 왕에 대한 충성을 보이는 표시이고
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0041 자기가 귀족임을 바깥에 공표하는 그런 기능을 하게 된 것이죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0044 그 시대를 조금 넘어가면 바로 루이15세의 부인이었던 퐁파두르의 모습이 보입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0046 그리고 이미 이당시에 이런 개념이 있었습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0048 그리고 개인에 어떤 아우라를 응축한 패션
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0050 이 바로크시대에 룩이라는 개념도 이미 나왔고
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0051 사람들은 어떻게 하면 더 많은 상품을 살까 더 소비할까를 고민하면 어떻게 되겠어요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0052 게절별로 상품을 쪼개서내면 되겠죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0054 자 여러분들이 지금 보시는 베르사유 궁전에 있는 거울의 방은요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0055 사실은 춤추는 곳이 아니라 저 눈앞에 펼쳐지는 아름다운 신상들의 세계를
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0056 사람들에게 팔기 위해서 물건을 전시하던 장소였습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0057 왕의 벽난로를 장식하던 저 장식품은 어떻습니까
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0060 얼마나 정교하게 만들었는지 그림을 일단 한번 주목하십시오
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0065 드디어 오늘날 우리가 알고있는 저 명품의 개념을 만들게 되는 겁니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0067 자 다음에 또 보시는 저 여행용 면도기세트입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0068 왕과 귀족들은요 저렇게 아주 화려한 면도기 세트를 들고
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0075 저건 코담배입니다 초록색은 뭐냐면요 보석이에요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0076 보석덩어리를 통째로 깎았습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0077 대단하죠 눈으로만 보십시오 가질수는 없습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0081 이제 혁명이 일어난 후에 패션을 한번 보세요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0083 이때만해도요 이제 다시 그리스시대에 어떤 여신들의 옷을 본딴 드레스들이
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0084 인간의 역사에 스며들어옵니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0091 저 캐시미어 숄은요 안타깝게 정품이 아니라 짝퉁이었습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0093 이 당시에 여인들은요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0096 저 원래 가격이 너무나도 앙등해버린거에요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0097 그러니까 실제 원제품을 가지기에는 너무 가격이 높았던겁니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0098 자신의 귀족여성의 이미지를 투사하는
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0100 물건이 값이 너무 높으니까 택할 수 있는 길은 딱 한가지죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0106 요번 그림을 한번 보시죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0107 어라 옷이 다시 화려해졌습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0108 혁명의 기운이 조금조금 지나가면서 다시 인간은 화려함에 눈을 뜨게 되었죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0109 그림 속 7명의 여인들
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0111 그러나 옷들이 너무 화려해서 누가 공주인지는 잘 모르겠습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0112 저 아름다운 옷들이 눈에는 예뻐보이지만
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0114 굉장히 무겁습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0116 까딱하다가 불에 타서 그자리에서 죽습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0117 실제로 그런 사례들이 있었구요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0119 하지만 저 그림 속에 보이시는 저 제일 위에 있는 하얀색 드레스를 입은 외제니라는 황후입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0122 옷을 너무 좋아했어요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0124 여인의 모든 로망을 매일 일상에서 실천하셨던 분입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0125 그녀를 위해서 그녀가 여행을 갈 때 혹은 남편을 따라서 여러나라를 순방할 때
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0126 보통 300여벌의 옷을 챙겨서 갔는데요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0127 그 옷을 구기지 않게 튼튼하게 담아낼 수 있는 트렁크를 만드는 장인이 있었으니
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0128 바로 그가 삼초백이라고 불리는 뭡니까 루이비통입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0133 그런 기능성 트렁크를 만들던 장인의 제품입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0134 자 이렇게 우리가 장인의 시대를 넘어서
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0135 드디어 1800년대 후반으로 와요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0137 여러분들이 잘 아시는 그림입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0138 그랑자트섬의 오후라고 하는 쇠라의 그림이죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0139 저는 이 그림을 통해서 여러분들이
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0140 딱 두가지의 사항을 한번 꼭 봐주셨으면 하는 마음이 있습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0142 물론 그 커플들이 꼭 부부가 아닐 가능성도 있습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0144 여기서 중요한 것은
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0145 이 그림속에 보이는 여인들의 옷을 보면 대체로 공통된 스타일이라는 겁니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0152 그리고 백화점이 만들어져서 사람들은 옷을 편하게 살 수가 있었죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0153 뒤집어 말하면
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0156 또 어떤 옷은 그 스타일을 그대로 흉내낸
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0157 저렴한 백화점 의상일 수 있다라고 하는 것이죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0159 바로 하나의 지배적인 스타일을 많은 동시에 사람들이 동시다발적으로 채택하는 현상
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0162 이렇게 대량으로 만들어진 제품들에 대해서 반기를 드는 사람들이 있겠죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0163 저기엔 뭔가 인간의 체온도 없고 장인의식도 없다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0165 여인이 입고 있는 옷 어떻습니까 초록색 옷입니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0177 아까전에 루이 14세를 통해서 그 당시에는 왕과 황후가 패션의 중심이었다면
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0179 바로 디자이너의 시대가 열린거죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0181 저 샤넬직원 아니에요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0184 1930년대 저 여인의 벨트를 보십시오
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0186 저 코트는 어떻습니까
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0190 자신의 몸으로 디자이너가 하나의 브랜드를 체현하게 되는 일이 발생한거죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0192 이게 100불정도밖에 안합니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0195 이런 전략을 통해 럭셔리브랜드들이 자꾸 자신의 영역들을 확장해가는 것이죠
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0196 그런가하면 또 한편에는 아주 싸게 기능성에서 오곤하는 SPA브랜드라는 것이 있습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0199 계절의 변화에 많이 맞추어서 다양하게 구매할 수 있도록
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0202 그런데 이 슬로우패션이라는 관점에서 보면
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0203 흔히 말하는 유니클로가 대표하는 패스트패션은요 비난을 많이 받았습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0205 그러다보니까 요즘 최근에는 HM에서는 환경을 의식하는 지속가능한 패션을 내놓기도 했습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0208 그 어떤 것도 도덕적으로 판단하기는 어렵습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0210 그 영향에 미쳐서 우리가 의식적인 소비를 하는 거에요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0213 원래 루이14세 시대에 쉬크라고 하는 것은 법정용어였습니다
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0218 그러면서 사회공동체를 생각하는
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0219 그런 의식적인 패션소비를 하는 여러분이 진정한 쉬크가 아닐까요
+- 6rmA7ZmN6riw-dZ3ThSYTNO4-0220 그것이 될 때 아침시간 화장하고 꾸미는 데 걸리는 시간이 보통 15분에서 18분이랍니다

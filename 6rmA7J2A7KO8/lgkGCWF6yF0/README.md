@@ -1,0 +1,181 @@
+### Sebasi Open Corpus: 인생을 바라보는 1cm 더 크리에이티브한 시선 | 김은주 '1cm', '달팽이 안에 달' 저자 | 창의성 강의 강연 | 세바시 423회
+
+- Speaker: 김은주
+- Gender: 
+- Length: 9:57 in 168 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=lgkGCWF6yF0] (https://www.youtube.com/watch?v=lgkGCWF6yF0)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0001 안녕하세요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0003 반갑습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0005 오늘 굉장히 날씨가 화창했는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0006 오늘 하루 동안 하늘을 올려다보신 분 있으신가요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0009 그렇다면 이번에 머릿속으로 한 번 하늘색을 떠올려 보시겠습니까
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0010 떠올리셨나요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0011 제가 요즘에 독심술이 생겼는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0012 어떤 색깔을 떠올리셨는지 한 번 맞춰보겠습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0018 그렇다면 과연 이 옅은 파란색이 하늘색의 전부일까요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0019 하늘색입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0020 일출 무렵의 황금빛으로 물든 하늘색이죠
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0021 하늘색입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0022 노을 진 서쪽하늘에 붉게 물든 하늘색입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0024 술 한 잔 생각나는 흐린 날의 하늘색이고요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0025 한밤중의 깜깜한 하늘색
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0026 그리고 푸른 기운이 감도는 새벽녘의 하늘색입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0027 하늘색은 이렇게 굉장히 다양한데
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0028 우리가 하늘색 하면 떠올리는 색깔은 단 한 가지 색깔뿐입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0029 왜 그런 것일까요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0030 어린이들이 그림을 그릴 때 하늘색을 칠하는 것을 보면
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0032 굉장히 다양한 색깔로 칠하는 것을 볼 수 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0033 그런데 크레파스에 적힌 이름 그대로 또 선생님이 가르쳐 주시는 대로
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0034 하늘색은 옅은 파란색이야라는 고정관념이 형성되면서
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0036 그리고 우리는 우리 자신이 미쳐
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0037 이런 고정관념에 빠져 있다는 사실조차 인식하지 못할 때가 많습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0039 그것이 고정관념이라는 것을 깨닫는 것이죠
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0040 하늘색이라는 이야기로 강연을 시작을 했는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0041 이번 세상을 바꾸는 시간의 주제가
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0042 좀 더 나은 인생을 살아가는 방법에 대한 것이라고 들었습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0043 저는 더 나은 삶을 살아가기 위해서
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0044 반드시 어떤 큰 변화나 힘든 노력이 필요한 것은 아니라고 생각을 합니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0045 다양한 하늘색을 발견할 수 있는 것처럼
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0046 조금 다른 시선으로 우리의 인생을 또 세상을 바라볼 수 있다면
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0047 단지 지루하고 평범하다고만 생각했던 인생에서
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0048 굉장히 흥미롭고 의미 있는 면들을 발견할 수 있을 것이라고 생각을 합니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0049 관점을 바꾸면 다양한 하늘을 발견할 수 있는 것처럼
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0050 사람에 대해서도 마찬가지인데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0051 이번에는 한 번 머릿속으로 철수 영희 바둑이를 떠올려 보시겠습니까
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0052 떠올리셨나요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0054 바로 이런 이미지를 떠올리셨을 거 같은데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0055 국어 교과서에서 많이 보던 그런 철수 영희 바둑이의 이미지죠
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0056 아주 익숙한 이미지입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0057 하지만 철수 영희 바둑이는 이렇게 생겼을 수도 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0059 철수와 영희는 어린이가 아니라 할아버지 할머니일 수도 있고요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0060 그것도 굉장히 패셔너블한 할아버지 할머니일 수도 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0061 할아버지 할머니가 좀 올드하다는 그런 편견을 버리시기 바라겠습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0062 그리고 바둑이는 강아지가 아니라 고양이 이름일 수도 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0063 이렇게 우리는 진실을 보기 전에
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0064 누군가 정해놓은 안전한 고정관념으로 다른 사람을 바라볼 때가 많습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0065 또한 우리 자신이 스스로 고정관념을 정해놓기도 하는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0066 그 대표적인 예가 바로 첫인상입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0067 첫인상이 결정되는 순간은 단 몇 초인데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0068 그 몇 초 동안 결정된 첫인상으로
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0069 누군가에 대해서 다 알고 있다고 가정을 하고
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0070 더 이상 그 사람에 대해서 알려고 하지 않는
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0071 그런 실수를 범하게 됩니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0073 그림으로도 보여 드리겠습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0074 굉장히 명품으로 치장한 듯한 사치스러운 여자처럼 보이는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0075 알고 보면 동대문표 의상으로 굉장히 합리적으로 코디한
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0076 그런 센스 있는 여자일 수도 있고요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0077 간호사인 줄 아셨죠
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0079 굉장히 말랐는데 알고 보면
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0080 정준하씨 같은 그런 식신일 수도 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0083 그것을 1cm 다른 시선으로 바라보는 관점에 대해서 말씀드렸는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0084 지금부터는 인류 역사 수 천 년 동안
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0085 굉장히 핫한 주제인 사랑에 대해서 말씀드리겠습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0086 먼저 저를 따라 발음을 한 번 해보시겠습니까
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0087 사람이라고 발음을 해보실까요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0089 그다음에 사랑이라고 한 번 발음을 해보실까요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0091 사람을 발음하면 입술이 닫히고 사랑을 발음하면 입술이 열립니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0092 사람은 사랑으로 서로를 열 수 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0093 서로 사랑하기 위해서는
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0094 서로 이해하는 것이 굉장히 중요한데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0095 그게 생각만큼 쉬운 일은 아니죠
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0096 특히 서로 다른 남녀가 서로를 이해하는 것은 더 힘든 일인데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0097 예전에 기사를 봤는데 스티븐호킹 박사가
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0099 저도 여자지만 제 자신이 이해가 안 될 때가 종종 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0100 그래서 여자를 한 번 수학공식으로 나타내 봤는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0103 하지만 여자를 이해하는 것이 불가능한 것은 아닙니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0104 지금부터 서로 다른 남녀의 1cm 차이
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0105 그리고 서로 더 이해할 수 있는 방법에 대해서 말씀드리겠습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0106 저는 남녀가 수 백 년 동안 다퉈온 이유가 바로 이것 때문이라고 생각을 합니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0107 이것은 바로 괄호인데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0109 바로 대화법의 차이를 의미합니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0110 여자는 괄호 안에 자신의 본심을 숨겨놓고 남자에게 얘기를 하고요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0111 남자는 괄호 밖에 그녀의 말이 그녀의 본심이라고 생각을 합니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0114 예를 들어서 여자의 몸이 좀 아플 뿐이야라는 말 안에는
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0116 오늘은 친구를 만날 건데 라는 말 안에는
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0118 가까운데 그냥 걸어갈게 라는 말 안에는
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0119 아 멀어도 바래다줬으면 좋겠는데
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0121 그리고 네가 먹고 싶은 거 라는 말 안에는
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0122 내가 먹고 싶은 건 파스타야 라는 말이 숨어 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0124 괄호 안의 여자의 말을 예측할 수 있는 센스가 필요하고요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0125 여자는 남자의 대화법은 자신과 다르다는 것을 알고
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0126 좀 더 쉬운 언어로 남자에게 얘기할 수 있는 그런 배려가 서로에게 필요합니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0127 또 여자는 가끔씩 남자에게
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0128 풀기 어려운 질문들을 내주기도 하는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0129 몇 가지 난이도에 따라서 그 질문들을 한 번 준비를 해봤습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0130 첫 번째 난이도의 질문입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0134 머릿속이 하얘지는 그런 질문이죠
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0135 두 번째 난이도의 질문입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0136 쇼핑을 갔을 때 자주 들을 수 있는 질문인데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0137 둘 중에 뭐가 예뻐
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0138 남자 눈에는 굉장히 똑같아 보이는 두 개의 옷을 들고
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0140 미시경제학과 거시경제학의 차이를 설명하라 라는 문제보다 훨씬 어렵죠
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0142 왜 그게 더 예쁜데
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0144 세 번째 난이도의 질문입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0148 그 날이 그녀의 생일도 아니고 몇 주년 기념일도 아니고
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0149 발렌타인 데이도 화이트 데이도
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0150 또 첫 키스한 지 278일째 되는 날도 아닌 경우
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0152 마지막 최고 난이도의 문제인데
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0153 또 가장 자주 들을 수 있는 그런 질문이기도 하죠
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0154 나 뭐 달라진 거 없어
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0156 무심코 남자가 평소랑 똑같은데라고 이렇게 이야기할 경우
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0158 그렇다면 여자는 왜 이런 남자들은 풀기 어려운 문제를
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0159 자꾸 남자에게 내주는 것일까요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0160 골탕 먹이려고 하는 것일까요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0161 아닙니다 바로 관심 때문인데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0162 여자는 남자에게 관심 받고 있다는 것을 확인받고 싶어하고
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0163 관심 받고 있다는 사실을 알게 될 때 큰 행복을 느끼기 때문입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0164 이어서 남녀의 1cm 다른 차이에 대해서
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0165 좀 더 몇 가지 과장을 섞어서 말씀드리겠습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0166 치마에 대한 남녀의 관점의 차이인데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0173 하지만 남자에게는 야구 중계보다 덜 중요한 프로일 뿐입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0176 이렇게 차이점이 있을 수밖에 없고
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0177 이런 차이점 때문에 서로 다투기도 하지만
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0178 또 이런 차이점 때문에 서로 매력을 느끼기도 합니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0179 그래서 서로 다른 남녀의 차이점을 인정을 하고
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0180 서로 배려를 하게 되면 우린 아름다운 사랑을 할 수 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0181 두 사람이 있어야 할 수 있는 것은 굉장히 다양한데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0183 공 던지고 받기도 할 수도 있고 받아쓰기도 할 수 있지만
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0184 두 사람이 할 수 있는 가장 아름다운 것은 사랑입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0187 마지막으로 나를 바꾸는 1cm 차이에 대해서 말씀드리겠습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0188 질문 하나를 드리겠는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0189 꿈과 이루다를 잇는 가장 알맞은 말은 무엇이라고 생각하십니까
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0191 1번 를 꿈를 이루다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0194 하지만 꿈과 이루다를 잇는 가장 알맞은 말은 바로 행동입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0199 우리가 어떤 것을 이루고자 할 때
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0200 굉장히 계획을 많이 세우고 준비를 많이 하는데요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0203 운동을 할 때 가장 어려운 게 뭘까요
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0204 바로 운동을 시작하는 거죠
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0205 그림처럼 고어텍스 운동복도 사야 되고 리미티드 에디션 운동화도 사야 되고
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0206 요가매트도 사야 되고 굉장히 준비할 게 많습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0207 하지만 100 준비되기를 기다리겠다는 말은
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0208 영원히 시작하지 않겠다는 말과 같습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0209 그래서 조금 스스로 부족하다고 느껴지더라도
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0210 일단 시작을 하고 행동을 하다 보면
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0211 나머지 부족한 부분은 저절로 채워지는 것을 경험하실 수 있을 것입니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0213 그 사색을 글로 옮기고 책으로 내는 그런 행동들이 있었기 때문에
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0214 국내와 해외의 많은 독자들을 만날 수 있게 된 것 같습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0215 또 우리가 어떤 일을 해나가다 보면 좌절에 부딪히게도 됩니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0218 하향곡선은 더 큰 관점으로 봤을 때
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0219 상승하는 한 과정의 한 지점일 수도 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0221 몇 년 전에 교통사고가 크게 나서
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0222 거의 반 년 동안 누워서 지냈었던 때가 있었습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0223 누워서 밥을 먹기도 하고 누워서 화장실을 가기도 했는데
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0224 오히려 그런 힘든 시기가 있었기 때문에
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0226 인생의 소중한 부분에 대해서도
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0227 좀 더 깊이 있게 생각할 수 있는 기회가 되었던 것 같습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0228 그래서 혹시 지금 힘든 시기를 겪으시는 분이 있다면
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0233 마지막으로 그림 한 장을 보여드리겠습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0234 소녀와 고양이가 등 뒤에 바다를 두고
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0236 앉은 자리를 바꾸지 않으면 새로운 풍경을 볼 수 없습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0237 다른 말로 지금 있는 곳에서 약간의 시선만 바꾼다면
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0238 멋진 풍경을 발견할 수 있고 큰 변화의 시작을 만들 수 있습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0240 여러분의 인생에서 멋지고 의미 있는 이런 풍경들을
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0241 많이 발견하시기를 바라겠습니다
+- 6rmA7J2A7KO8-lgkGCWF6yF0-0242 감사합니다

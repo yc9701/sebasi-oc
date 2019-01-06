@@ -1,0 +1,134 @@
+### Sebasi Open Corpus: 상상하지 말라. 그리고 관찰하라 | 송길영 다음소프트 부사장 | 세바시 513회
+
+- Speaker: 송길영
+- Gender: 
+- Length: 5:58 in 121 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=2XK4kEL7D1M] (https://www.youtube.com/watch?v=2XK4kEL7D1M)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7Iah6ri47JiB-2XK4kEL7D1M-0002 네 안녕하세요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0003 전 송길영입니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0005 분위기 너무 좋네요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0006 오늘 제가 설명 드릴 주제는
+- 7Iah6ri47JiB-2XK4kEL7D1M-0007 상상하지 말라 그리고 관찰하라는 주제예요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0008 먼저 절 잘 모르시는 분들을 위해서
+- 7Iah6ri47JiB-2XK4kEL7D1M-0011 수많은 흔적들을 다 긁어 모아서
+- 7Iah6ri47JiB-2XK4kEL7D1M-0012 그 속에 담긴 사람들의 생각을 읽는 게 직업입니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0014 사람들의 마음을 읽는 일을 하고 있어요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0016 사람들의 마음을 캐내는 광부 같은 일을 한다 라고 말을 합니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0017 제가 이 일을 해오면서 알게 된 여러가지의 사람에 대한 어떤 이해 같은 부분 중에서
+- 7Iah6ri47JiB-2XK4kEL7D1M-0019 이 자리에 서게 되었습니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0020 리모콘 얘기를 좀 해 보고 싶어요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0021 집에 다 한 두개 쯤 가지고 계시죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0022 리모콘 딱 이렇게 생긴 거 같아요 보시는 것 처럼
+- 7Iah6ri47JiB-2XK4kEL7D1M-0023 그 리모콘에 대한 우리들의 생각을 펼쳐 보니까요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0026 빠지지 않는 사람이 있어요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0028 그 다음에 그 중에서 빠지지 않는 동사가 하나 있습니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0034 그 다음에 앉아서 라면 다 먹고 난 다음에
+- 7Iah6ri47JiB-2XK4kEL7D1M-0037 그래가지고 항상 찾고 있죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0039 동서양을 고금하고는 다 같기 때문에
+- 7Iah6ri47JiB-2XK4kEL7D1M-0040 어떤 훌륭한 서양 사람이 이런 걸 만들었어요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0041 리모콘 찾는 휘슬이라고요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0043 리모콘에 붙어 있는 모듈이 반짝반짝 불이나고 소리가 나는 거예요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0049 그래서 이거보다 좀 더 약간 좀 더 똑똑한 사람은
+- 7Iah6ri47JiB-2XK4kEL7D1M-0053 이 강아지의 이름이 리모콘이예요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0055 이것도 좋은 생각 처럼 보이지만 문제가 있어요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0059 리모콘을 생각하면 어떤 게 떠오르십니까
+- 7Iah6ri47JiB-2XK4kEL7D1M-0060 보통 떠오르시는게 원빈 같은 멋진 배우가 이렇게 포즈를 취하는 게 떠오르시죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0073 또 뭐 있습니까 채널 돌리는 거
+- 7Iah6ri47JiB-2XK4kEL7D1M-0074 왜 우리는 세 가지만 쓰고 있을까요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0075 여기에는 인지 과학이 숨어 있습니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0076 무슨 얘기냐 하면
+- 7Iah6ri47JiB-2XK4kEL7D1M-0077 여러분들은 핸드폰을 쓰실 때는 언제나 핸드폰을 보세요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0078 왜냐하면 핸드폰을 봐야지만 조작 부위가 거기에 있거든요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0089 리모콘은 무조건 요철이 있어야 됩니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0094 리모콘에 내가 알고 있는 모든 지식을 넣고 싶은 겁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0095 왜냐하면 혹시 이게 대박 났을 때 경쟁자가 못 오게 해야 되기 때문에
+- 7Iah6ri47JiB-2XK4kEL7D1M-0097 그러면 이렇게 최첨단 리모콘이 나오고 우린 쓰지 않는 겁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0100 무엇을 만들기 전에
+- 7Iah6ri47JiB-2XK4kEL7D1M-0104 그렇지가 않고 내가 만들고 싶어서
+- 7Iah6ri47JiB-2XK4kEL7D1M-0106 실제로 이런 형태의 새로운 어떤 발견들이 사방에 있게 되고
+- 7Iah6ri47JiB-2XK4kEL7D1M-0108 우리는 스마트 폰을 통해서 이미 알고 있습니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0109 어떤 기계는 만드는 사람은 기계를 보구요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0110 어떤 사람은 그 속에 있는 사람을 보구요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0111 어떤 사람들은 그 사람을 보는 사람들까지 봅니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0115 그러면 우리가 보는 사람이 진짜 그 사람일까가 궁금해진 거예요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0117 실제의 사람을 보고 있습니까 아니면 그 사람을 상상하고 있습니까
+- 7Iah6ri47JiB-2XK4kEL7D1M-0119 최근에 한국이 많이 변하고 있는대요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0121 결혼이 어려워지고 그 다음에 가정을 꾸린다는 것은
+- 7Iah6ri47JiB-2XK4kEL7D1M-0123 자의 반 타의 반 그래서 많은 기업들이 싱글에 대해서 새로운 시장으로 인식하고
+- 7Iah6ri47JiB-2XK4kEL7D1M-0124 많은 형태의 사업을 하려고 하고 있어요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0126 어떤 게 떠오르시죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0128 멋진 뉴욕 라이프를 누리시는거죠 독신녀 네 분이서
+- 7Iah6ri47JiB-2XK4kEL7D1M-0132 자취생이라구요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0133 그들은 스스로를 싱글이라 부르지 않구요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0137 나의 일상을 그대로 보여주는 이런 프로그램들이
+- 7Iah6ri47JiB-2XK4kEL7D1M-0138 우리한테는 좀 더 큰 감동을 주고 있는 겁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0140 실제 우리의 삶은 거기랑은 거리가 있거든요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0141 그렇다면 왜 자꾸 우리는 주어진 어떤 만들어진 이미지를 가지고 상상하고 있을까요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0142 그 이유는 내가 한 번도 사람을 제대로 보지 않았기 때문이예요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0143 따라서 제가 알고 싶은 것은
+- 7Iah6ri47JiB-2XK4kEL7D1M-0147 가구 같은 거 있죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0150 마찬가지로 여러분들이 흔히 보이는 천 원 짜리 물건 파는 점포들
+- 7Iah6ri47JiB-2XK4kEL7D1M-0151 이런 것도 역시 싱글이 500만에 가까워지기 때문에 만들어지는
+- 7Iah6ri47JiB-2XK4kEL7D1M-0153 그러다보니까 가전 제품 회사들도 똑같이 싱글을 위한 제품을 만들고 싶어해요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0154 그래서 제가 아는 굉장히 훌륭한 기업에서 이런 고민을 했습니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0156 싱글들을 도와주고 싶은데  좋은 아이디어예요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0163 통상적으로 이렇게 높은 분이 얘기를 하면
+- 7Iah6ri47JiB-2XK4kEL7D1M-0167 왜냐면 시킨 걸 안하면 혼나니까
+- 7Iah6ri47JiB-2XK4kEL7D1M-0175 말이 안되는거죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0179 왜냐면 싱글은 혼자 살지만 빨래를 일주일에 한 번 합니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0184 오피스텔이나 원룸이기 때문에 이미 있어요 빌트인으로
+- 7Iah6ri47JiB-2XK4kEL7D1M-0186 이 때 이 기업은 굉장히 크게 공감 했습니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0187 왜냐하면 큰 높은 분이라고 할 지라도 언제나 옳은 것은 아니에요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0188 그도 의견에 불과한데
+- 7Iah6ri47JiB-2XK4kEL7D1M-0189 우린 자꾸 그가 만들어진 의견에 대해서 큰 의미를 부여합니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0190 그러다 보니까 하지 말아야 될 일을 하고 있다는 거예요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0194 다시 말해서 권위를 데이타를 통해서 우리는 대치할 수 있는 힘을 갖게 된 겁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0198 실제의 고객들을 관찰 하는 겁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0199 마찬가지로 최근에 또 늘어나는 시장이 있어요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0201 나이 드신 분들의 숫자가 늘고 있고
+- 7Iah6ri47JiB-2XK4kEL7D1M-0202 베이비 붐 세대가 은퇴를 하고 있기 때문에
+- 7Iah6ri47JiB-2XK4kEL7D1M-0212 그러다보니까 이런 중년 노년 같은 의미가 들어오면 난 아니지 라고 생각합니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0213 근데 실제로 그런 사람들의 생각 자체가 언제나 맞는 것은 아닌 것이
+- 7Iah6ri47JiB-2XK4kEL7D1M-0215 시니어들의 데이타를 보시면 70 대도 중년이라고 우깁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0220 즉 실제 그들의 생각을 우리는 알고 싶은 겁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0223 멋진 해로하신 두 분이 유람선을 타고 멀리 움직이는 것들
+- 7Iah6ri47JiB-2XK4kEL7D1M-0226 그 다음에 극히 소수의 사람들이
+- 7Iah6ri47JiB-2XK4kEL7D1M-0229 활발하게 움직이시는 것들이 나오죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0232 나이가 들면 아무래도 여러가지 어려움이 생깁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0235 나이가 들어서 인제 자기 소변을 관리하기가 좀 어려워진 상태가 되는거죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0239 요실금 얼마든지 활기차게 생활할 수 있는 대처 방법이 있습니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0240 굉장히 부끄럽죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0247 그리고 우리 나이 되면 자연 대인 관계도 축소되고
+- 7Iah6ri47JiB-2XK4kEL7D1M-0249 그 시기마저 뜨음 해지고 나면 영감 할매 단 둘이 대화 하겠죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0250 그나마 한 쪽이 가버리고 나면 동지 섣달 기나긴 밤을 잠 못 이루는 일이
+- 7Iah6ri47JiB-2XK4kEL7D1M-0254 자 이런 내용들이 어떤 남자 분이 회한을 쓴 글이 아니라요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0256 시니어 동회회에 가입한 여자 분에게 보낸 쪽지예요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0257 내용은 사귀자 이겁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0259 그래서 여러분이 보시기에 그냥 나이 드신 분들은 점잖게
+- 7Iah6ri47JiB-2XK4kEL7D1M-0260 남녀 관계 같은 것은 해로하지 않으면 없는 거 아니냐
+- 7Iah6ri47JiB-2XK4kEL7D1M-0261 천만에요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0263 전부 다 할아버지들이예요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0266 무슨 얘기죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0267 이들에게도 사랑이 있어요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0268 여러분들은 부모님이 혼자 되시면
+- 7Iah6ri47JiB-2XK4kEL7D1M-0269 게속해서 돌아가실 때 까지 혼자 계시기를 희망합니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0271 하지만 여러분 혼자 되시면 하고 싶다고 물어보는 것들
+- 7Iah6ri47JiB-2XK4kEL7D1M-0278 이렇게 얘기 하는거죠 티도 안나고 속옷 같은데
+- 7Iah6ri47JiB-2XK4kEL7D1M-0279 왜냐하면 이 나이에도 사랑이 있거든요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0281 내가 생각 하기에 나이 드신 분은 그냥 섭생과 주거만 있으면 되는 거 아니냐
+- 7Iah6ri47JiB-2XK4kEL7D1M-0288 실제의 것들을 보고 나면 그를 위할 수 있다는 거죠
+- 7Iah6ri47JiB-2XK4kEL7D1M-0292 하지만 어느 누구도 이렇게 밥을 먹지 않아요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0293 삼면을 채우고 하나를 비워 놓구요
+- 7Iah6ri47JiB-2XK4kEL7D1M-0299 직장에서 혹은 집에서 아니면 가까운 카페에서 먹고 있다는 말입니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0302 마음 속의 삶이 아니라 실제의 삶을
+- 7Iah6ri47JiB-2XK4kEL7D1M-0303 예전의 삶이 아니라 현재의 삶을 알고 싶은 겁니다
+- 7Iah6ri47JiB-2XK4kEL7D1M-0307 그 다음에 상상 하시면
+- 7Iah6ri47JiB-2XK4kEL7D1M-0308 내가 관찰한 대상에 대한 진정한 애정이 그를 위해 준비했던
+- 7Iah6ri47JiB-2XK4kEL7D1M-0311 감사합니다

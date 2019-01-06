@@ -1,0 +1,81 @@
+### Sebasi Open Corpus: (Kor, Eng) 세바시 393회 트렌드코리아 2014 : 스웨그 신드롬에 주목하라 | 김난도 서울대 교수
+
+- Speaker: 김난도
+- Gender: 
+- Length: 3:46 in 68 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=KAJygBMVHa8] (https://www.youtube.com/watch?v=KAJygBMVHa8)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA64Kc64+E-KAJygBMVHa8-0004 아 정말 많이 오셨네요
+- 6rmA64Kc64+E-KAJygBMVHa8-0007 저도 종철씨 춤이 너무 재밌어서 여기서 같이 했습니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0009 천번을 흔들려야 어른이 된다 이런 책도 있고
+- 6rmA64Kc64+E-KAJygBMVHa8-0010 제가 에세이를 쓰기도 합니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0011 그렇지만 사실은 저는
+- 6rmA64Kc64+E-KAJygBMVHa8-0012 서울대학교에서 소비를 연구하는 학자입니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0015 트렌드를 연구하는 입장에서 그리고 일반 시청자의 입장에서
+- 6rmA64Kc64+E-KAJygBMVHa8-0016 제가 최근에 제일 재밌게 봤던 드라마는 응답하라 1994입니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0017 여러분도 그렇죠 네
+- 6rmA64Kc64+E-KAJygBMVHa8-0022 제가 5년전에 어느 방송국의 시청자 위원이라는 걸 했어요
+- 6rmA64Kc64+E-KAJygBMVHa8-0023 시청자 위원은 한달 동안 텔레비전을 보면서 프로그램을 모니터하고
+- 6rmA64Kc64+E-KAJygBMVHa8-0024 맨날 똑같애요 너무 드라마가 막장이다
+- 6rmA64Kc64+E-KAJygBMVHa8-0029 미국 드라마 열심히 보고 있었는데
+- 6rmA64Kc64+E-KAJygBMVHa8-0035 그런데 우리나라 드라마는 그런게 잘 없죠
+- 6rmA64Kc64+E-KAJygBMVHa8-0036 전 이제까지 살면서 기억상실증 걸린 사람 한번도 본 적 없거든요
+- 6rmA64Kc64+E-KAJygBMVHa8-0039 왜이럴까 생각해보니까 미국 드라마는 사전 제작을 합니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0042 근데 우리나라는 대부분의 드라마를 그때그때 제작을 합니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0044 배우들은 그걸 소화하느라고 밤을 새워야 되고
+- 6rmA64Kc64+E-KAJygBMVHa8-0048 영화판에서는 그 영화 찍느라고 일년을 준비합니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0051 제가 시청자위원하던 방송국에서 회의할때 사장님도 계신데서
+- 6rmA64Kc64+E-KAJygBMVHa8-0052 이제 우리나라 드라마도 사전 제작을 하자
+- 6rmA64Kc64+E-KAJygBMVHa8-0056 그날 회의가 끝나고 드라마 국장님이 저한테 조심스럽게 오시더니
+- 6rmA64Kc64+E-KAJygBMVHa8-0057 근데 교수님 우리가 사전 제작 안해본게 아닌데요
+- 6rmA64Kc64+E-KAJygBMVHa8-0062 왜그럴까요
+- 6rmA64Kc64+E-KAJygBMVHa8-0075 현대에서 이렇게 트렌드가 빨리 변하고
+- 6rmA64Kc64+E-KAJygBMVHa8-0077 이렇게 무리가 되고 방송사고가 나더라도
+- 6rmA64Kc64+E-KAJygBMVHa8-0078 할 수 없이 매주 매주 드라마를 만들어야 하는 것 입니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0079 전 아직도 게시판에 칠봉이를 쫙 밀었으면
+- 6rmA64Kc64+E-KAJygBMVHa8-0081 그런 아쉬움이 있어요
+- 6rmA64Kc64+E-KAJygBMVHa8-0082 이제 트렌드의 시대가 되었습니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0083 완성도보다는 지금 이시간에 당신의 고객이 무엇을 원하고 있는가를
+- 6rmA64Kc64+E-KAJygBMVHa8-0085 제가 이런 생각을 하게 된 것이 한 10년쯤 전입니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0088 10개로 정리해서 발표하는 작업을 했어요
+- 6rmA64Kc64+E-KAJygBMVHa8-0092 그래서 제가 트렌드 키워드를 선정하는 작업을
+- 6rmA64Kc64+E-KAJygBMVHa8-0093 굉장히 엄중하게 느끼고 있고요
+- 6rmA64Kc64+E-KAJygBMVHa8-0096 다크호스 입니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0097 올해는 청말띠이긴 한데요
+- 6rmA64Kc64+E-KAJygBMVHa8-0098 제가 유니콘 페가수스까지 말처럼 생긴것들은 다 고민해 봤는데
+- 6rmA64Kc64+E-KAJygBMVHa8-0107 여기 계신 여러분들
+- 6rmA64Kc64+E-KAJygBMVHa8-0108 제 책의 독자 여러분들 그리고 세바시 시청자 여러분들이
+- 6rmA64Kc64+E-KAJygBMVHa8-0109 예상을 훌쩍 뛰어넘는
+- 6rmA64Kc64+E-KAJygBMVHa8-0110 그런 좋은 성적을 거두셨으면 좋겠다라는 취지에서
+- 6rmA64Kc64+E-KAJygBMVHa8-0111 다크호스라고 키워드를 정했습니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0123 날이 바짝 서지 않을까
+- 6rmA64Kc64+E-KAJygBMVHa8-0124 그런 전망을 했었는데
+- 6rmA64Kc64+E-KAJygBMVHa8-0137 이건 저스틴 비버나 힙합 가수들 가사에 많이 나오는데요
+- 6rmA64Kc64+E-KAJygBMVHa8-0138 우리나라에도 있습니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0139 제가 좋아하는 지드래곤
+- 6rmA64Kc64+E-KAJygBMVHa8-0145 실제론 어떻게 사용되냐면
+- 6rmA64Kc64+E-KAJygBMVHa8-0147 첫번째 무대와 지금 무대를 나란히 보면 어떨까
+- 6rmA64Kc64+E-KAJygBMVHa8-0152 노래는 잘 못했다 하지만
+- 6rmA64Kc64+E-KAJygBMVHa8-0160 구체적으로 예를 들어볼까요
+- 6rmA64Kc64+E-KAJygBMVHa8-0166 어떤건 10초백이라고 해서 지하철타면 10초안에도 찾을 수 있고
+- 6rmA64Kc64+E-KAJygBMVHa8-0168 없으면 나만 챙피한거죠
+- 6rmA64Kc64+E-KAJygBMVHa8-0171 본사에 가서 AS를 받았다는 전설적인 이야기도 있고
+- 6rmA64Kc64+E-KAJygBMVHa8-0191 그러니까 이런 자기만의 개성을 찾는 소비들이 많이 늘어날 것이다
+- 6rmA64Kc64+E-KAJygBMVHa8-0193 우리 사회가 계속해서 지나치게 가벼워지고있다
+- 6rmA64Kc64+E-KAJygBMVHa8-0194 좀 나쁜표현으로 하면 경박해지고있는 것 같다
+- 6rmA64Kc64+E-KAJygBMVHa8-0195 이건 우리 사이의 커뮤니케이션 방식이 좀 바뀌어서 그렇습니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0196 옛날엔 제가 여러분에게 얘기할 수 있는 방법
+- 6rmA64Kc64+E-KAJygBMVHa8-0198 내가 널 좋아한다고 할 수 있는 유일한 방법은
+- 6rmA64Kc64+E-KAJygBMVHa8-0199 편지쓰는거였어요
+- 6rmA64Kc64+E-KAJygBMVHa8-0210 뉴스도 마찬가지입니다
+- 6rmA64Kc64+E-KAJygBMVHa8-0211 얼마전에 시리아에서 독가스가 살포돼서
+- 6rmA64Kc64+E-KAJygBMVHa8-0215 너무너무 가볍고 경박하고 조롱하는 댓글들이 달린다는거죠
+- 6rmA64Kc64+E-KAJygBMVHa8-0217 신문은 한면을 통틀어서 시리아의 문제가 얼마나 심각한지 얘기하며
+- 6rmA64Kc64+E-KAJygBMVHa8-0225 인기 연예인 A씨 누드 동영상 알고보니 헉 이렇게 있어요
+- 6rmA64Kc64+E-KAJygBMVHa8-0230 더구나 여러분 같으면 둘 중에 뭐 먼저 보시겠어요

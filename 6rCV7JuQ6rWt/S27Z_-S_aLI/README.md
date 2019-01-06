@@ -1,0 +1,139 @@
+### Sebasi Open Corpus: 글쓰기의 두려움을 이기는 법 | 강원국 ‘대통령의 글쓰기’ 저자 | 글쓰기 인생 강연 듣기 | 세바시 761회
+
+- Speaker: 강원국
+- Gender: 
+- Length: 8:26 in 126 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=S27Z_-S_aLI] (https://www.youtube.com/watch?v=S27Z_-S_aLI)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0001 오래 기다렸습니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0002 사실 이 자리는 정말 제가 꿈꾸던 자리입니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0004 여기에 가면 강연 못하는 사람도 다 잘할 수 있다 그 말 듣고 왔는데요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0007 이게 술은 아니고요 그냥 물입니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0008 저도 긴장하면 또 배가 아파요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0010 말씀을 시작하겠습니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0013 저도 한 26년 글 쓰는 걸로 월급을 받고 살았습니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0015 항상 막막하고 초조하고 불안하고
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0016 과연 쓸 수 있을까 이런 생각으로 글을 쓰기 시작하거든요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0017 저는 김대중 대통령 3년 노무현 대통령 5년 모시면서
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0018 매일매일이 그런 두려움에 직면하는 일이었습니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0019 김대중 대통령은
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0020 매일 평가를 해주셨는데요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0022 얼마나 많이 고치셨느냐로 평가를 해주셨어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0025 그 다음에 문단에 단락이라 그러죠 거기에 물결표시를 하시고 좌우 여백에 쓰시면
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0027 세 번째는 한 쪽을 가위표를 치시고 뒷장에 쓰세요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0028 그게 한 쪽으로 끝나지 않고
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0029 다음 존경하는 국민 여러분 나올 때까지는 다 가위표예요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0030 그런 경우는 좀 짜증이 나신 거죠
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0031 마지막이 문제인데요 종이가 내려오질 않아요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0034 이건 도저히 손을 댈 수가 없다 내가
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0035 그냥 내가 처음부터 끝까지 구술해서 연설문을 만들겠다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0036 그걸 우리는 폭탄이라고 했는데요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0038 근데 한번 받으면요 다음에 또 받는 게 되게 두려워요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0039 손도 얼고 머릿속도 얼고 글이 안 써져요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0040 그럴 정도로 글쓰기가 어려웠죠
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0041 노무현 대통령 때는 5년간 연설 비서관이 됐고
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0042 더 책임도 막중해지면서 사실은 더 힘들었던 것 같아요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0043 노무현 대통령은 필문필답으로 고쳐주시는 게 아니고 직접 불러서 혼내셨거든요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0045 대통령은 성실하게 피드백해 주시고 고쳐주시고 저를 가르쳐 주셨어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0046 근데 그분은 가르쳐 주신 거지만 저는 혼나는 거죠
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0049 근데 연설 비서관이 올리는 보고서는 연설문이에요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0051 손을 안 대고 잘 됐다 그러면 그대로 가서 읽어야 되는 건데
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0055 노무현 대통령을 모시던 어느 날이었어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0056 아침 7시에 대통령께서 원고를 보시겠다고 7시까지 가져오라고 그랬는데
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0057 새벽 2시가 됐는데 거의 못 쓰고 있었어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0058 과연 쓸 수 있을까 7시까지 두려워지기 시작했어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0060 지금이 7시면 어떻게 될까 지금 대통령께 가야되는데
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0061 대통령께 가서 저 아직 못 썼는데요 이런 말을 하는 상황을 상상해 봤어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0063 그랬더니 그거는 자동으로 그런 상상에 빠져요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0064 그러면 대통령이 어떤 표정으로 어떤 말씀을 하실지
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0065 평소에 많이 겪어봤기 때문에 충분히 상상이 돼요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0067 그 때 시계를 다시 봤어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0068 아 아직 2시밖에 안 됐구나 쓸 시간이 남아 있구나 감사하다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0069 그러니까 공포감과 감사한 마음이 교차하면서 집중해서 썼어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0070 사람은요 위기감을 느끼면 집중해요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0071 하나는 욕심을 버려요 일단
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0072 잘 써야 되겠다 내가 아는 것보다 더 많이 아는 것처럼 보여야 되겠다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0074 욕심을 내려 놓습니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0075 사실은 욕심 때문에 못 쓰는 거거든요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0076 글을 지금 못 쓰고 있다면 욕심 부리고 있는 거예요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0078 근데 위기 상황에 처하면 그걸 내려놔요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0079 대개 그런 상황이 학교 다닐 때 시험 볼 때 감독 선생님이 들어오셔서
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0081 가방에 그걸 집어 넣으면서 10초 동안에 이틀 공부할 분량을 봐요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0083 그런 상황이 되는 거죠
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0084 그럴 때는 욕심을 내려놓을 뿐만 아니라 직관력이 작동해요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0085 그거는 거의 초능력에 가까워요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0086 잠재역량을 최대한 끌어 올려요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0087 그래서 제가 첫번째 팁으로 여러분께 말씀드리고 싶은 것은
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0090 언제까지 써라 그러면 그때까지 미루지 마시고
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0091 예를 들어서 10분 내에 써야 되겠다 그건 짧을수록 좋아요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0092 5분 내에 써야 되겠다 누구나 다 쓸 수 있습니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0095 그렇게 마음을 먹으면 뇌가 아주 집중해 가지고 욕심을 버리고 씁니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0096 그게 스스로 두려움을 이겨낼 수 있는 첫 번째 방법이고요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0097 또 하나는 자기 최면을 거는 겁니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0099 첫 번째는 남들은 내 글에 그다지 관심이 없다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0100 여러분들 결혼식장 가서 주례사 열심히 듣습니까
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0103 아무도 안 듣는데
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0104 실제로 여러분들 남의 글을 그렇게 열심히 보십니까
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0105 그렇게 보는 분 없어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0106 그러면서 자기 글은 남들이 열심히 볼 거라고 착각해요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0107 그리고 혼자 막 벌벌 떨어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0108 그다지 관심 없거든요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0111 지금 글을 쓸 수 있다는 것만 해도
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0112 또 하나는요 언제가 써지는 순간이 반드시 온다는 믿음이에요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0113 여러분들 지금까지 글 쓰면서 단 한 번이라도 못 쓴 글은 없어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0115 제 경험으로는 처음엔 항상 두렵고 막막하지만 뒤로 갈수록 써져요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0117 줄거리가 터지는 순간이 와요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0118 마치 낱말 퍼즐 맞출 때라든가 그림 퍼즐 맞출 때
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0119 처음은 어렵지만 맞추다 보면 뒤에 가서 빈칸이 자동으로 채워지잖아요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0121 마지막으로는 몰입이에요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0122 저는 항상 대통령 연설을 쓸때
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0123 한 23일 간격으로 다음 연설 다음 연설이 계속 있었어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0125 다음에 써야 될 게 뭔가를 생각하면서 계속 그 생각만 했어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0126 그 생각만 하지 않고는 글을 쓸 수 없었기 때문에
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0127 밥먹을 때도 길을 갈때도 저도 모르게 그 생각을 하고 있었어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0128 꿈에서도 제가 일주일에 한 23일은 글쓰는 꿈을 꿨어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0129 대개 글을 쓰는 꿈이 아니고 글을 못 써서 혼나거나
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0130 아니면 날짜가 됐는데 못 쓰고 있어요 못 썼어
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0133 딱 세 번은 꿈에서 완벽하게 글을 썼어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0136 그래서 꿈을 계속 꿔야되겠다 생각을 하고 꿈을 꾸면서 한편으로는
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0138 생각하면서 꿈을 꾸면서 외웠어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0139 그게 8년 동안 딱 세 번이에요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0142 그 내용이 내가 한번도 어디서 듣거나 공부하거나 읽은 내용이 아니에요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0144 이게 어디서 나온 건가 할 정도의 아주 좋은 내용이 나왔어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0145 그래서 그 때를 생각할 때 아 이런 게 몰입인가보다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0147 황농문 교수가 얘기를 하셨죠
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0148 딱 두 가지만 하시면 돼요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0151 시작하지 않으면 뇌가 그냥 놀고 있어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0153 그 과업을 완수하기 위해서 자기 나름대로 노력을 해요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0155 수시로 그걸 떠올려 보는 거예요 다른 말로 하면 걱정하시는 거예요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0158 그 정도만 해 주시면 뇌는 계속 혼자 쓴다고요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0159 그러다가 길가다가 갑자기 생각이 탁 나요 아 이거 쓰면 되겠네
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0161 여러분들이 지금 글을 못쓰고 글쓰기가 두렵고 그러시다면 착수하지 않아서 그렇고요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0163 마지막으로 제가 대통령의 글쓰기를 할 때의 얘기를 드리겠습니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0165 와이프가 또 무슨 일하기 싫으니까 쫌병이 났냐고 당신이 무슨 책이냐고
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0171 아침에 일어나면 산책을 하고 돌아오는 길에 아메리카노 커피를 하나 사와서
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0172 집에 와서 샤워를 하거나 머리를 감고
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0173 그 앉은뱅이 책상에 앉아서 글 쓰는 걸 계속 시도했어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0174 와이프 눈치가 보여서 그렇게 하지 않을 수 없었어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0178 그 땐 그게 이유를 몰랐어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0181 그런데 어느 시점에 가면 저항하는 것도 힘들다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0182 아 이 친구 내가 그렇게 저항을 하는데도 계속 시도를 하니까
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0183 언제까지 내가 이걸 해야 돼 차라리 도와주고 끝내자
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0192 아 글 쓰려나 보다 이렇게 생각해요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0193 그러면 한편으로는 그래도 안 쓰면 좋겠다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0195 아 정말 쓰는구나 빼도 박도 못 하는 구나
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0198 집에 와서 샤워를 하면요 막 던져줘요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0199 이것도 써 봐라 저것도 써 봐라 빨리 자기도 끝내고 싶어서
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0203 나중에 듣고 보니까 그걸 아주 잘 했다는 거예요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0205 글쓰기를 일정한 시간에 매일 일정한 시간 만큼 일정한 장소에서 계속 시도하는 게 중요하고요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0206 그거 하기 전에 뭔가 자기가 의식을 치뤄야 돼요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0207 제가 산책하고 아메리카노 커피를 사듯이
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0209 그걸 행사하면서 단계를 밟아서 들어가면 뇌가 빠져들어요
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0215 여기까지 정말 소심하고 찌질한 제가 글쓰기 두려움을 이겨내는 방법을 말씀드렸습니다
+- 6rCV7JuQ6rWt-S27Z_-S_aLI-0216 여러분의 건투를 빕니다

@@ -1,0 +1,114 @@
+### Sebasi Open Corpus: (Kor) 세바시 587회 우리가 행복해야 모두가 행복하다 | 박마루 현 서울시의원, 지체장애인
+
+- Speaker: 박마루
+- Gender: 
+- Length: 6:32 in 101 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=JnQ_aELbkQI] (https://www.youtube.com/watch?v=JnQ_aELbkQI)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 67CV66eI66Oo-JnQ_aELbkQI-0002 오늘 많이들 오셨네요
+- 67CV66eI66Oo-JnQ_aELbkQI-0005 먼저 제가 이야기를 좀 시작하겠습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0006 제 이야기는요 결혼 이야기부터 시작을 하겠습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0011 그리고 장애를 갖고 있고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0015 그리고 아내의 가족들에게 정말 축복을 받으면서 결혼한다는 건
+- 67CV66eI66Oo-JnQ_aELbkQI-0016 저에게는 정말 힘들었습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0017 그래서 옆에 있는 지인들에게요 제가 조언을 구했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0019 먼저 전화를 좀 드리면서 친교를 갖게 됐습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0021 사실 처음부터 제가 장애를 갖고 있다고 생각하면
+- 67CV66eI66Oo-JnQ_aELbkQI-0022 부모님은 정말 속상하고 마음이 아플 겁니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0026 첫 번째는요 제가 살아온 이야기들을 정리했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0027 그리고 두 번째는 저의 삶의 계획서를 정리했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0030 어땠을까요
+- 67CV66eI66Oo-JnQ_aELbkQI-0033 그리고 아버님도 아무 말씀 없으셨고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0034 그래도 저는 긴장을 했지만
+- 67CV66eI66Oo-JnQ_aELbkQI-0037 그래도 굶지는 않겠네
+- 67CV66eI66Oo-JnQ_aELbkQI-0038 그 이상의 대화는 이어지지 못했어요
+- 67CV66eI66Oo-JnQ_aELbkQI-0040 그런데요 저에게 정말 좋은 일이 생겼습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0044 대통령 부인 이희호 여사께서 저에게 상을 주는 모습을 보시고
+- 67CV66eI66Oo-JnQ_aELbkQI-0045 그때부터 저희 장모님 어머님은요 서서히 마음이 풀어지기 시작했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0055 그런데 어머님이 결혼 승낙을 해주면서 저한테 조건이 있었어요
+- 67CV66eI66Oo-JnQ_aELbkQI-0057 결혼식장에서는 제발 가발을 써라
+- 67CV66eI66Oo-JnQ_aELbkQI-0060 이게 내 것이 아니니까요 가렵기도 하고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0062 머리에 뭔가 올라가 있는 것 같아요
+- 67CV66eI66Oo-JnQ_aELbkQI-0063 그래서 과감하게 그냥 빡빡 머리로 식장에 들어갔습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0065 그리고 또 한 가지 어머님에게 사과드릴 일이 있는데요
+- 67CV66eI66Oo-JnQ_aELbkQI-0066 제가 부모님을 만나고 나서요 사실 결혼 때문에 고민을 좀 많이 했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0071 저 때문에 또 한 사람의 인생이 힘들어하진 않을까 고생하진 않을까
+- 67CV66eI66Oo-JnQ_aELbkQI-0072 그리고 정말 아내에게 미안했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0078 똥 이야기입니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0079 왜 똥이냐고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0081 바닷가로 휴가를 가기로 했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0083 아내의 고향은 재래식 화장실인데 앞마당에 있었습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0084 여러분 보다시피 제가 이 목발을 짚고 화장실을 이용하는 게
+- 67CV66eI66Oo-JnQ_aELbkQI-0087 몇몇 가구가 공동으로 쓰는 재래식 화장실이었습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0092 제가 미끄러지면서요
+- 67CV66eI66Oo-JnQ_aELbkQI-0093 빠졌습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0095 동네 아이들은 냄새난다고 저를 놀리고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0098 밥을 먹지 않으면 똥을 싸지 않겠지
+- 67CV66eI66Oo-JnQ_aELbkQI-0099 오죽하면 제가 이런 생각 하겠습니까
+- 67CV66eI66Oo-JnQ_aELbkQI-0100 제가 드디어 걱정을 갖고 처갓집에 도착했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0102 우리 박서방 앞에 있는 화장실 이용할 때
+- 67CV66eI66Oo-JnQ_aELbkQI-0106 그러자 아버님이 이어서 말씀하시는 거예요
+- 67CV66eI66Oo-JnQ_aELbkQI-0107 세면장에 좌변기 화장실을 만들었다는 거예요
+- 67CV66eI66Oo-JnQ_aELbkQI-0108 저는 사실 그 말씀을 듣는 순간 정말 고마웠고 미안했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0110 지금은 이 세상에 안 계시지만
+- 67CV66eI66Oo-JnQ_aELbkQI-0111 그래서 제가 아버님하고 약속한 게 있습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0112 아내에게 잘하고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0113 그리고 어머님에게 장모님은 살아 계시니까 장모님에게 효도하겠다고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0115 저는 이렇게 생각합니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0117 저희 장인 어른께서 장애인인 저에게 안전하게 화장실을 이용하도록 배려해주신 것처럼요
+- 67CV66eI66Oo-JnQ_aELbkQI-0118 여러분 우리 사회에서요 안전에 덜 노출되고 위험에 더 노출된 사람이 누굴까요
+- 67CV66eI66Oo-JnQ_aELbkQI-0119 바로 약자들입니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0120 이 약자들은요 장애인이 될 수도 있고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0121 어르신도 될 수 있고요 어린이도 될 수 있고요 그렇습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0122 제가 1982년부터 서울 생활을 시작을 했는데요
+- 67CV66eI66Oo-JnQ_aELbkQI-0123 사실 저는 서울이 전쟁터였어요
+- 67CV66eI66Oo-JnQ_aELbkQI-0124 그때 당시만 해도 장애인이 대중교통을 이용하는 것은요 정말 힘들었습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0125 특히 아침에요 많은 사람들이 움직이는 그 대중교통을 이용하는 건요
+- 67CV66eI66Oo-JnQ_aELbkQI-0127 저는 목숨을 내걸고 대중교통을 이용하는 그런 느낌이었습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0128 편의시설도 없었고요 저상버스도 없었습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0130 다행히도 지금은요 정말 좋아졌어요
+- 67CV66eI66Oo-JnQ_aELbkQI-0131 하지만 아직도요 우리 사회적 약자들은요 어려움에 처해 있습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0132 그래서 저는 이런 생각을 합니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0133 우리 사회적 약자들이요 안전하면요 우리 모두가 안전하다고 저는 주장합니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0136 이제부터는요 제 자랑을 조금 하겠습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0139 장애는요 분명 불편하지만 단점이지만
+- 67CV66eI66Oo-JnQ_aELbkQI-0140 저는 그렇게 생각합니다 장애는 또 다른 능력을 갖고 있다고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0146 지금 판사도 있잖아요
+- 67CV66eI66Oo-JnQ_aELbkQI-0147 그분이 보지 않으니까요 더 정확히 재판을 한다고 얘기하더라고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0148 농아인 같은 경우도 보세요
+- 67CV66eI66Oo-JnQ_aELbkQI-0149 농아인 분들은요 소리는 들리지 않지만
+- 67CV66eI66Oo-JnQ_aELbkQI-0150 아무리 시끄러운 소리에서도요
+- 67CV66eI66Oo-JnQ_aELbkQI-0153 저는 지체 장애인인데요 아마도 제가 세계 최초로
+- 67CV66eI66Oo-JnQ_aELbkQI-0156 근데 제가 KBS 사랑의 가족 TV에서 7년 간 리포터로 활동했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0158 그리고 제가 직접 코디 메이크업도 했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0159 정말 열심히 했습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0162 그만큼 그런 결과를 통해가지고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0163 제가 KBS 사랑의 가족 메인 MC가 됐습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0167 그리고 제가 현재는 나사렛 대학교 협동교수로 있습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0168 그리고 복지 TV의 부사장으로 있으면서
+- 67CV66eI66Oo-JnQ_aELbkQI-0169 당당하게 제 이름을 걸고
+- 67CV66eI66Oo-JnQ_aELbkQI-0171 이런 모든 것들이요 제가 능력이 뛰어나서 그랬을까요
+- 67CV66eI66Oo-JnQ_aELbkQI-0172 아닙니다 저에게 기회를 주신 분들이 있습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0177 저를 포함해서요
+- 67CV66eI66Oo-JnQ_aELbkQI-0178 근데 지금은 50명이 넘는 직원입니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0179 아무리 잘 만든 콘텐츠라도요 우리가 볼 수 없으면 의미가 없죠
+- 67CV66eI66Oo-JnQ_aELbkQI-0180 케이블에 복지TV는 제한적으로 나가고 있었어요
+- 67CV66eI66Oo-JnQ_aELbkQI-0182 그리고 장애인 방송권에 대해서 설명을 드렸어요
+- 67CV66eI66Oo-JnQ_aELbkQI-0183 그리고 방송법이 일부 개정이 되었습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0185 복지TV는 모든 케이블 IPTV 그리고 위성방송에 의무적으로 송출이 되고 있습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0188 저는 제가 복지TV에서 한 일에 대해서 자부심을 갖고 있습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0191 제가 주관적으로 말씀드리겠습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0192 저는요 이 세상에서 가장 불쌍한 사람은요
+- 67CV66eI66Oo-JnQ_aELbkQI-0193 그 누군가를 위해서 단 한 번도 울어보지 못한 사람이라고 저는 주장하고 싶습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0194 그래서요 저도 마찬가지지만 누구든 리콜과 리필이 필요하다고 생각합니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0196 저의 주장은 이렇습니다
+- 67CV66eI66Oo-JnQ_aELbkQI-0197 우리 가슴에요 하트를 많이 많이 만들고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0202 우리 모두가요 더욱 더 상대방을 배려하고요
+- 67CV66eI66Oo-JnQ_aELbkQI-0203 그리고 사랑의 무한 리필을 어려운 분들에게 전달해 주는
+- 67CV66eI66Oo-JnQ_aELbkQI-0204 저와 여러분이 되기를 기도하겠습니다

@@ -1,0 +1,119 @@
+### Sebasi Open Corpus: 우리가 연애를 할 때 알아야 할 이야기들 | 김태훈 팝컬럼니스트 | 연애 강연 강의 추천 특강 | 세바시196회 | (Kor, Eng, Chn)
+
+- Speaker: 김태훈
+- Gender: 
+- Length: 4:16 in 106 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=W8uTNNPOxCo] (https://www.youtube.com/watch?v=W8uTNNPOxCo)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0020 많은 사람들이 사랑이라고 대답을 합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0022 그다지 공부하지 않습니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0028 그것을 공부를 하면 할수록 판타지가 사라지지 않을까요
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0029 라는 고민들을 이야기합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0031 여러분들이 가지고 있는 그 판타지를 말끔히 걷어내야지만
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0034 연애와 사랑 속에서 헤매고 있을 뿐이다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0036 몇가지 판타지와 미신에 대한 이야기를 본격적으로 해보도록 하겠습니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0037 많은 사람들이 연애를 시작하기 전에 자신들의 이상형을 그립니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0039 아 판타지들이 많습니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0045 그러나 아름다운 백마를 타고 있는 왕자님들을 머릿속에다 그리고 있겠죠
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0046 전 그때마다 그분들에게 이야기합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0048 괴물이죠
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0051 존재하지 않는 사람을
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0058 이상형을 여러분들이 바라고 있습니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0059 자 왜 그럴까요
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0064 몸매 괜찮습니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0066 활발한 성격이니 스포츠맨일 거고
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0068 암벽등반도 좀 해주고
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0069 스쿠바도 하고
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0073 또한 연인에게 굉장히 순종적입니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0074 그래서 결국 결론은 어떻게 돼요
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0075 오직 나만 바라보는 남자
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0079 방정식을 배우게 되면 어떻게 됩니까
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0084 논리적으로 철저히 잘못돼있고
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0090 남자가 이정도 몸매이면
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0096 바쁘죠
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0099 그렇죠
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0102 후배들이 선배님 이라고 하면
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0103 언제든지 가서 술 한잔을 받아주고
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0104 또한 아는 선배도 무지하게 많습니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0105 단지 남자선배와 후배들만 있을까요
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0106 아닙니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0111 여기까지가 뭡니까
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0115 연인에게 순종적인 오직 나만 바라보는 남자
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0121 후배 챙겨야죠
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0123 이게 이상형이 가진 함정입니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0124 이상형이라는 것은
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0129 저는 여성들에게 이야기합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0131 오직 나만 바라보는 남자 좋다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0132 그러면
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0136 몸매가 아주 근육질이 아닐지라도
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0139 스포츠맨이라기보다는
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0141 전문직일거 같은데 영업쪽은 아닐거 같고
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0142 집에서 혼자 하는 글을 쓰는 작가이거나
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0145 또한 원만한 교우관계 보다는
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0148 이정도의 x값이 들어가야
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0157 일주일에 한번 정도는 만날 수 있는 남자
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0158 결혼을 하면 주말엔 집에 있는 남자
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0160 여기서부터 출발해야 됩니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0161 우리가 가지고 있는 많은 이상형이라는 것은
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0162 논리적으로 성립될 수 없는 그림들입니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0164 자신들의 이상형을 끊임없이 존재하지 않는 이상형을
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0165 현실의 사람에게 대입시키기 때문에
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0166 늘 불만에 가득 차 있습니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0168 나머지 20 퍼센트의 충족되지 않는 부분 때문에 그 사람을 괴롭히고
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0172 남자의 갈비뼈에서 여자를 만들었기 때문에
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0173 여성은 남성에게 종속적인 관계라고 몇 천년 전부터 주장해 왔습니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0174 이건 20세기까지의 진실입니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0176 어떻게요
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0180 만들어놓고 나니 오작동을 합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0184 계량형을 만들자 상위버전
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0190 여성들부터 볼까요 여성들은 이렇게 이야기합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0193 야 도대체 모르겠어
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0194 왜 그러는데
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0195 단순합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0204 그래서 여자들은 끊임없이 말하고 싶어하지만
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0205 남자들은 그 말을 다 받아줄 여력이 안됩니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0206 이건 굉장히 중요합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0223 뭘 사줘요
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0224 목걸이 반지
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0226 그럼 어떻게 됩니까
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0229 여기엔 기본적인 차이가 있습니다 왜
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0230 여성들은 이 기념일이 특별한 날이기 때문에
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0231 석달전부터 고민을 합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0232 어디 갈까 뭘 사줄까
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0233 무슨 얘길 할까 어떤 옷을 입을까
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0239 결혼식을 앞두고
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0242 여성들은 이렇게 고민합니다 이 남자가 맞는걸까
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0245 남자들은 그 시간 무슨 고민을 하죠
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0249 기념일은 바로 그런날입니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0250 여성들이 기념일에 원하는건 비싼 선물이 아닙니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0251 그 선물이 가지고 있는 의미입니다 어떤 의미
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0252 세상에 나를 향해서 대쉬했던 그 수많은 남자들을 다 버려둔 채
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0253 당신을 선택한 것이 맞았다라고 내게 증명해 주세요 라는 날입니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0258 그래서 여자들에게 기념일은 굉장히 중요합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0263 무조건 넌 나를 사랑해야만 해
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0267 이틀 동안 머리를 감지 않아도 너는 나를 사랑해야만해
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0268 왜
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0270 그럼 남자들은 어떻게 생각해요
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0271 아침에 출근하면서
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0273 화장을 정말 정성스럽게 하고 가장 좋은 옷을 입고
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0278 그래서 기념일엔 두 가지 모습이 생기는 겁니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0282 아주 자연스런 딜레마입니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0287 봄날은 간다 이 영화 보신 분들 계시겠죠
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0289 “야 어떻게 사랑이 변하냐”
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0293 사랑이 어떻게 변하니
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0296 연애가 가지고 있는 가장 큰 미신입니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0298 왜요
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0300 많은 사람들이 연애의 초반에 이야기합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0301 당신을 위해 변해줄게
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0311 그 사람은 자신의 원래의 모습으로 돌아갑니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0312 그래서 많은 여성들이
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0317 그래서 저는 연애와 사랑에 빠진 연인들에게 그렇게 충고합니다
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0322 장점은 장점대로 기능할 것이며
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0324 내가 끌어안고 갈 수 있는지 없는지를 판단해라
+- 6rmA7YOc7ZuI-W8uTNNPOxCo-0326 사랑을 얻을 수 있는 법이고

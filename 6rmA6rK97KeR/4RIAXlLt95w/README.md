@@ -1,0 +1,189 @@
+### Sebasi Open Corpus: (Kor) 세바시 709회 생각이 바뀌면 삶이 바뀐다 | 김경집 인문학자
+
+- Speaker: 김경집
+- Gender: 
+- Length: 7:20 in 176 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=4RIAXlLt95w] (https://www.youtube.com/watch?v=4RIAXlLt95w)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA6rK97KeR-4RIAXlLt95w-0002 안녕하세요
+- 6rmA6rK97KeR-4RIAXlLt95w-0003 생각이 바뀌면 삶이 바뀐다 라는 제목인데
+- 6rmA6rK97KeR-4RIAXlLt95w-0004 사실은 좀 더 세게 했어야 돼요
+- 6rmA6rK97KeR-4RIAXlLt95w-0006 아마 이렇게 해야 맞을 겁니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0007 2016년이지요 거의 끝날 시간입니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0008 20세기 지난 지 벌써 16년이 지났습니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0010 우리 뭐가 달라 졌지요 더 나아졌나요
+- 6rmA6rK97KeR-4RIAXlLt95w-0011 그렇지 않지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0013 우리는 여전히 20세기 사고방식에서 크게 벗어나지 않았습니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0019 도덕성
+- 6rmA6rK97KeR-4RIAXlLt95w-0023 오직 속도와 효율입니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0024 20세기는
+- 6rmA6rK97KeR-4RIAXlLt95w-0025 그런 틀로 살 수가 없습니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0026 창조
+- 6rmA6rK97KeR-4RIAXlLt95w-0027 혁신
+- 6rmA6rK97KeR-4RIAXlLt95w-0028 융합
+- 6rmA6rK97KeR-4RIAXlLt95w-0029 구호나 선언으로는 외쳐요
+- 6rmA6rK97KeR-4RIAXlLt95w-0030 정작 어떻게 그렇게 할 것인지에 대해서는 별생각이 없습니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0031 먼저 말씀드릴 것은 교육이라고 하는 것은 그렇게 거창한 거 아닙니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0034 모든 것이 속도와 효율로 규정됐습니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0036 음악에 대한 지식을 배우고
+- 6rmA6rK97KeR-4RIAXlLt95w-0039 옹달샘이라고 하는 동요를 다 기억하실 겁니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0041 우리나라 동요 같지요 그렇지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0042 지금 보시다시피 외국곡입니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0043 저는 왜 외국곡이라고만 썼는지 이해가 잘 안 돼요
+- 6rmA6rK97KeR-4RIAXlLt95w-0044 독일 노래에요
+- 6rmA6rK97KeR-4RIAXlLt95w-0045 저 언덕 아래 라고 하는 그런 민요입니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0048 한 소절 그다음에 따라 불러요
+- 6rmA6rK97KeR-4RIAXlLt95w-0049 두 소절 계속 늘려나가지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0053 왜 그랬을까요
+- 6rmA6rK97KeR-4RIAXlLt95w-0054 예전에 인원이 많으니까
+- 6rmA6rK97KeR-4RIAXlLt95w-0055 일일이 다 체크를 못 할 수 있지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0058 앎의 연대 에요
+- 6rmA6rK97KeR-4RIAXlLt95w-0059 우리가 흔히 말하는 집단지성 이라고 말하잖아요
+- 6rmA6rK97KeR-4RIAXlLt95w-0061 자 이렇게 시켰어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0062 아까전에는 부를 때 별생각 없이 따라 불러요
+- 6rmA6rK97KeR-4RIAXlLt95w-0063 심지어 립싱크하는 녀석도 꼭 있어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0068 발표체험을 하는 거예요
+- 6rmA6rK97KeR-4RIAXlLt95w-0069 누가 있었어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0070 내 친구들이 있으니까
+- 6rmA6rK97KeR-4RIAXlLt95w-0071 나 혼자 할 수 없지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0072 이래서 학교 오는 거예요
+- 6rmA6rK97KeR-4RIAXlLt95w-0074 그럼 다른 친구들은 어떤 경험을 하게 될까요
+- 6rmA6rK97KeR-4RIAXlLt95w-0075 관객체험을 하지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0076 이렇게 불러주는 친구 발표해주는 친구 없으면 못하지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0077 그런데 보세요
+- 6rmA6rK97KeR-4RIAXlLt95w-0078 아까 내가 따라부를 때는 별생각 없이 불렀는데
+- 6rmA6rK97KeR-4RIAXlLt95w-0082 내가 불렀던 노래를 객관화하는거예요
+- 6rmA6rK97KeR-4RIAXlLt95w-0083 이제 우리 줄 시키면 어때요
+- 6rmA6rK97KeR-4RIAXlLt95w-0084 그 부분을 긴장해서 부르겠지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0085 그러면 분단 별로 쭉 가면 점점 어떤 일이 생길까요
+- 6rmA6rK97KeR-4RIAXlLt95w-0086 나아지겠지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0089 우리는 오로지
+- 6rmA6rK97KeR-4RIAXlLt95w-0090 음악에 대한 지식과 노래를 부른다고 하는
+- 6rmA6rK97KeR-4RIAXlLt95w-0092 가사 해본 적 있으세요 가사
+- 6rmA6rK97KeR-4RIAXlLt95w-0093 이 노래 가사
+- 6rmA6rK97KeR-4RIAXlLt95w-0096 주인공이 누구예요
+- 6rmA6rK97KeR-4RIAXlLt95w-0097 고민하실 거 없어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0099 토끼가 숲속의 강자입니까 약자입니까
+- 6rmA6rK97KeR-4RIAXlLt95w-0102 그런데 토끼가 뭐가 하고 싶은 게 있데요
+- 6rmA6rK97KeR-4RIAXlLt95w-0104 세수
+- 6rmA6rK97KeR-4RIAXlLt95w-0105 이게 말이 돼요
+- 6rmA6rK97KeR-4RIAXlLt95w-0106 약자가 하고 싶은 게 있다
+- 6rmA6rK97KeR-4RIAXlLt95w-0107 그럴 권리가 있어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0109 약자는
+- 6rmA6rK97KeR-4RIAXlLt95w-0111 네가 무슨 권리야
+- 6rmA6rK97KeR-4RIAXlLt95w-0112 그러잖아요
+- 6rmA6rK97KeR-4RIAXlLt95w-0113 누가 파업하면 내가 귀찮은 것만 생각하고
+- 6rmA6rK97KeR-4RIAXlLt95w-0114 그 사람이 왜 그럴까
+- 6rmA6rK97KeR-4RIAXlLt95w-0115 묻지도 따지지도 않아요
+- 6rmA6rK97KeR-4RIAXlLt95w-0116 최소한의 공감 능력도 없어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0117 생각을 해봅시다
+- 6rmA6rK97KeR-4RIAXlLt95w-0119 뭔가 하고 싶은 게 있고 그럴 권리가 있대요
+- 6rmA6rK97KeR-4RIAXlLt95w-0120 거창하게 말하면 그게 뭐예요
+- 6rmA6rK97KeR-4RIAXlLt95w-0121 행복추구권이에요
+- 6rmA6rK97KeR-4RIAXlLt95w-0124 행복추구권을 초등학교 1학년이 배우잖아요
+- 6rmA6rK97KeR-4RIAXlLt95w-0125 토끼가 일찍 일어났어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0126 왜요 세수하려구요
+- 6rmA6rK97KeR-4RIAXlLt95w-0129 늙은 토끼일까요 아니면 어린 토끼일까요
+- 6rmA6rK97KeR-4RIAXlLt95w-0130 늙은 토끼 손들어 보세요
+- 6rmA6rK97KeR-4RIAXlLt95w-0133 집에서 어르신들 눈 비비고 안 일어나잖아요
+- 6rmA6rK97KeR-4RIAXlLt95w-0135 어린 토끼라고 생각하시는 분이요
+- 6rmA6rK97KeR-4RIAXlLt95w-0137 아기들도 새벽에 일어나요 예
+- 6rmA6rK97KeR-4RIAXlLt95w-0143 그럴 확률이 크지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0146 제가 어떤 유명한 기업에 가서 이렇게 강연을 하는데
+- 6rmA6rK97KeR-4RIAXlLt95w-0148 어린 토끼냐 늙은 토끼냐 물어봤더니
+- 6rmA6rK97KeR-4RIAXlLt95w-0151 뭐가 잘못됐냐
+- 6rmA6rK97KeR-4RIAXlLt95w-0152 그랬더니
+- 6rmA6rK97KeR-4RIAXlLt95w-0154 너는 어떻게 생각하세요
+- 6rmA6rK97KeR-4RIAXlLt95w-0155 젊은 토끼래요
+- 6rmA6rK97KeR-4RIAXlLt95w-0159 무슨 뜻인지 짐작이 되셨어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0161 세수하는 건 외모에 신경을 쓰는 건데
+- 6rmA6rK97KeR-4RIAXlLt95w-0163 노인정에 마음에 두신 할머니 계실 수도 있어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0164 어린 토끼가 그럴까요
+- 6rmA6rK97KeR-4RIAXlLt95w-0166 그런데 젊은 토끼거나 사춘기 토끼면
+- 6rmA6rK97KeR-4RIAXlLt95w-0167 능히 그럴 수 있지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0168 이게 지식의 집단화 에요
+- 6rmA6rK97KeR-4RIAXlLt95w-0171 만약에 그 여직원을 안 만났다면
+- 6rmA6rK97KeR-4RIAXlLt95w-0172 오늘도 두 가지 이야기했을 거예요
+- 6rmA6rK97KeR-4RIAXlLt95w-0173 그런데 그 친구를 통해서 확장되는 거예요
+- 6rmA6rK97KeR-4RIAXlLt95w-0174 그 친구도 저를 안 만났으면 이런 생각을 아예 안 해요
+- 6rmA6rK97KeR-4RIAXlLt95w-0175 그렇지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0176 세수하러 갔는데 세수했어요 안 했어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0179 별별 대답이 다 나와요
+- 6rmA6rK97KeR-4RIAXlLt95w-0180 그런데
+- 6rmA6rK97KeR-4RIAXlLt95w-0181 중요한 것은 질문을 받으면 생각을 하지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0182 그게 뭐냐면
+- 6rmA6rK97KeR-4RIAXlLt95w-0185 나랑 답이 같으면 어때요
+- 6rmA6rK97KeR-4RIAXlLt95w-0187 왜 그럴까요
+- 6rmA6rK97KeR-4RIAXlLt95w-0188 내 답이 맞을 확률이 커져서 그래요 심리적으로
+- 6rmA6rK97KeR-4RIAXlLt95w-0189 내 생각과 다르면 미워요 괜히
+- 6rmA6rK97KeR-4RIAXlLt95w-0191 그래서 비슷한 생각 묶어두고
+- 6rmA6rK97KeR-4RIAXlLt95w-0192 다른 생각 묶어둬요 나 지금 뭐 하고 있어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0193 수학하고 있잖아요
+- 6rmA6rK97KeR-4RIAXlLt95w-0194 집합
+- 6rmA6rK97KeR-4RIAXlLt95w-0195 이 생각도 아니고 이 생각도 아니면 따로 모아둬요
+- 6rmA6rK97KeR-4RIAXlLt95w-0196 여집합
+- 6rmA6rK97KeR-4RIAXlLt95w-0197 심리학과 수학이 같이 있지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0200 그러면 어떻게 반응해요
+- 6rmA6rK97KeR-4RIAXlLt95w-0201 저 바보 아니야 저거
+- 6rmA6rK97KeR-4RIAXlLt95w-0203 재수 없어
+- 6rmA6rK97KeR-4RIAXlLt95w-0205 그러면 얘도 금방 바로 알아요
+- 6rmA6rK97KeR-4RIAXlLt95w-0206 애들이 말은 하지 않지만
+- 6rmA6rK97KeR-4RIAXlLt95w-0207 표정으로 탁 나타나지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0212 너 왜 그렇게 생각해
+- 6rmA6rK97KeR-4RIAXlLt95w-0213 내가 그렇게 질문을 받았으니까
+- 6rmA6rK97KeR-4RIAXlLt95w-0214 말할 권리가 있지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0218 어떤 일이 일어날까요
+- 6rmA6rK97KeR-4RIAXlLt95w-0219 아까 분명 재수 없어 그랬는데
+- 6rmA6rK97KeR-4RIAXlLt95w-0220 얘 얘기를 들어보니까 전체를 다 동의할 수는 없지만
+- 6rmA6rK97KeR-4RIAXlLt95w-0221 어 저건 말 되네 어 그럴 수 있네 생각이 달라지겠지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0222 그래서 아까 내렸던 판단을 거두어들입니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0223 그러면서 내가 사람을 판단을 할 때는
+- 6rmA6rK97KeR-4RIAXlLt95w-0224 어떻게 해야 되겠어요 시간을 두고
+- 6rmA6rK97KeR-4RIAXlLt95w-0226 사물을 판단하든 사태를 판단하든
+- 6rmA6rK97KeR-4RIAXlLt95w-0227 다 마찬가지입니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0228 놀랍게도 이 어린아이들의 가장 많은 대답은 뭐냐면 이렇습니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0232 내가 여기가서 풍덩들어가서 샤워를 하거나 세수를 하면
+- 6rmA6rK97KeR-4RIAXlLt95w-0235 그런데 아이들은 놀랍게도 그런 대답을 하게 됩니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0238 세수할래 안 할래
+- 6rmA6rK97KeR-4RIAXlLt95w-0241 얘가 왜 그럴까요 내가 분명히
+- 6rmA6rK97KeR-4RIAXlLt95w-0242 권리도 있고 의무도 다했어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0243 그런데 내 행복이 내가 행복을 추구할 권리도 있고
+- 6rmA6rK97KeR-4RIAXlLt95w-0247 하지만 내 행복 때문에
+- 6rmA6rK97KeR-4RIAXlLt95w-0248 누군가가 불행해진다면
+- 6rmA6rK97KeR-4RIAXlLt95w-0250 애들 전부다
+- 6rmA6rK97KeR-4RIAXlLt95w-0251 아니요
+- 6rmA6rK97KeR-4RIAXlLt95w-0253 우리 그렇게 안 할 거예요
+- 6rmA6rK97KeR-4RIAXlLt95w-0255 타인이 불행한데도
+- 6rmA6rK97KeR-4RIAXlLt95w-0256 내 권리 주어졌으니까
+- 6rmA6rK97KeR-4RIAXlLt95w-0257 나만 내 행복을 누리면 돼
+- 6rmA6rK97KeR-4RIAXlLt95w-0261 어떤 하나를 놓고 그것을 어떻게 바라보느냐에 따라서
+- 6rmA6rK97KeR-4RIAXlLt95w-0262 생각이 달라질 수 있지요
+- 6rmA6rK97KeR-4RIAXlLt95w-0263 수업이 다 끝났어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0269 혹은 목격한 마지막 세대에요
+- 6rmA6rK97KeR-4RIAXlLt95w-0270 그렇다고 고무줄놀이에서 별로 낭만적이지도 않았어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0273 자 이제 음악 시간에 배운 노래
+- 6rmA6rK97KeR-4RIAXlLt95w-0274 이 옹달샘을 부르면서 고무줄놀이를 해요
+- 6rmA6rK97KeR-4RIAXlLt95w-0275 몸은 팔짝팔짝 뛰는데 이 노래를 부를 때마다
+- 6rmA6rK97KeR-4RIAXlLt95w-0276 무슨 생각이 떠오르겠어요
+- 6rmA6rK97KeR-4RIAXlLt95w-0277 아까 음악 시간에 했던 모든 내용이
+- 6rmA6rK97KeR-4RIAXlLt95w-0278 하나의 직관으로 들어옵니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0279 이 노래를 평생 들을 때마다 부를때 마다
+- 6rmA6rK97KeR-4RIAXlLt95w-0280 정의가 뭔지
+- 6rmA6rK97KeR-4RIAXlLt95w-0281 행복추구권이 뭔지
+- 6rmA6rK97KeR-4RIAXlLt95w-0282 함께 사는 공동체적 가치가 뭔지
+- 6rmA6rK97KeR-4RIAXlLt95w-0283 이런 것들을 깨닫게 돼요
+- 6rmA6rK97KeR-4RIAXlLt95w-0284 21세기가 요구하는 지식의 방식은 이런 겁니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0285 앎의 연대와 삶의 연대가
+- 6rmA6rK97KeR-4RIAXlLt95w-0286 우리의 사고의 전환에 의해서
+- 6rmA6rK97KeR-4RIAXlLt95w-0288 더 중요한 것은 그 주체와 중심이 바로 사람입니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0289 사람에 대한 존중 그거 없으면
+- 6rmA6rK97KeR-4RIAXlLt95w-0291 지금 우리에게 필요한 입체적 사고와 사람에 대한 존중
+- 6rmA6rK97KeR-4RIAXlLt95w-0292 21세기 우리의 미래를 살려낼 수 있을 것이라고
+- 6rmA6rK97KeR-4RIAXlLt95w-0293 확실하게 말씀드릴 수 있겠습니다
+- 6rmA6rK97KeR-4RIAXlLt95w-0294 고맙습니다

@@ -1,0 +1,181 @@
+### Sebasi Open Corpus: (Kor, Eng) 세바시 510회 내 삶의 힘 : 그럼에도 불구하고 | 조선희 사진작가
+
+- Speaker: 조선희
+- Gender: 
+- Length: 10:1 in 168 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=LG0cLnZDYdg] (https://www.youtube.com/watch?v=LG0cLnZDYdg)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0002 안녕하세요 조선희입니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0004 저는 사진가이고 대학교수이기도 하고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0006 그리고 엄마이죠
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0007 그러니까 한마디로 말하면
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0008 굉장히 바쁜 나쁜 엄마입니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0009 사실 오늘도 저희 아들이 일년에 한번 밖에 없는 학교 발표회였어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0012 저희 아들에게 제가
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0014 스케줄이 있어서 못 갈 거 같다 라고 말했더니
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0015 아홉 살 난 그 녀석이
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0017 이렇게 말했어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0018 그러다가 오늘 아침에
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0020 엄마 그 약속은 바꿀 순 없는 거야
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0022 저는 여러분들에게
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0023 다 엄마신가요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0025 저랑 같군요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0026 슈퍼맘이 되지 말라고 말할려고 나왔습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0027 저는 슈퍼맘이 되지 않으려고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0028 2006년 저희 아들을 임신 했을 때 마음먹었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0031 우리 아들이 나중에 컸을 때
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0032 이 세상에 누가 제일 멋있는 여자야 라고 물어봤을 때
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0033 우리 엄마 라고 말하는 그런 엄마가 되고 싶었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0034 저는 가끔 이렇게 치맛바람이 있는 엄마이기도 합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0036 그것도 거창한 축구 게임이 아닌 축구교실 축구 게임 때
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0037 사진찍으러 들어갔다가 찍힌 사진인데요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0039 엄마가 사진가니까 이렇게 큰 카메라로 사진도 찍어주고 참 좋겠다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0040 라고 말했어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0041 저희 아들이 저는 엄마가 사진 찍어 주는 게 제일 싫어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0045 뭔가 방해를 하고 싶은
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0046 엄마는 나를 절대 잘 찍을 수 없어
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0048 왜인지 제가 어제도 물어 봤는데 대답하지 않더라구요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0049 저도 아직 그 이유는 모릅니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0050 이 사진은
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0051 제가 초등학교 1학년이었던가 2학년이었던 소풍 사진인데요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0053 두 번째 앉아 있는 파란색 체육복을 입은 아이가 접니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0054 얼마나 부모님의 관심과 애정이 없었으면
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0056 저희 어머니는 다섯 남매를 둔 장사하시는 분이셨어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0058 저도 물론 저희 아들이 한 명 밖에 없지만
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0060 그래서 저는 어머니 아버지의 진정한 사랑을 느끼기 전에
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0063 그럼에도 불구하고 결핍은 에너지를 주는 단어라고 생각합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0064 저는 그럼에도 불구하고 라는 단어를 굉장히 좋아합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0066 굉장히 음률이 좋아요 그럼에도 불구하고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0067 근데 잘 생각해보면
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0068 그러나 뭔가 할 수 있다는 굉장히 딴딴한 느낌이 있어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0069 그럼에도 불구하고 난 할 수 있어
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0070 그런 느낌이 들어서 굉장히 좋은 단어라고 생각합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0072 그럼에도 불구하고 잘 해 보리라
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0073 그럼에도 불구하고 좋은 엄마가 돼 보리라 노력하리라
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0074 라고 생각하고 있습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0075 이 사진은 제가 대학생 시절에 찍었던
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0076 저의 첫 번째 작업 사진입니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0077 저는 14살 때 아버지가 돌아가셨어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0079 저는 결핍이 있는 아이로 자랐고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0082 더 많은 결핍이 있는 아이로 자랐습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0083 그 결핍이 결국 저를 사진을 찍게 만들었다고 생각합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0084 저는24살 때 사실 사진기도 없었고 돈도 없었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0086 내가 평생 살면서 할 수 있는 게 뭘까 라고 생각했을 때
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0089 저는 사진을 전공하지도 않았고 가난한 학생이었어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0090 그럼에도 불구하고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0091 저는 사진을 찍고 싶다라는 생각이 굉장히 강했었죠
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0092 만약에 제가 결핍이 있는 아이로 자라지 않았더라면
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0093 그럼에도 불구하고라는 생각은 하지 못했을 거예요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0094 그래서 그러지 않았더라면 김중만 선생님을 만나지 못했을 거고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0095 그러지 않았더라면 지금의 저는 없었을 거라고 생각합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0096 1996년에 이정재라는 배우를 만났죠
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0098 인천이었는데 많은 사람들이 구경을 나왔어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0099 처음에는 이정재씨를 구경했죠
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0100 근데 나중에는 저를 구경했어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0101 왜 굉장히 남자처럼 생긴 여자 아이가
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0103 그러니까 굉장히 이상한 퍼포먼스를 하는 사람처럼 보였었는지도 모르겠습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0105 단지 좋은 사진 한장 찍고 싶다 라는 그 생각 하나로
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0106 추운 겨울이었지만 사진을 잘 찍지는 못했지만
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0108 그리고 그 옆에 있는 사진은
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0109 1999년에 세 번의 비행기를 갈아타고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0112 그 때 찍었던 이영애씨 사진입니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0115 그 때까지도 돈을 잘 버는 사진가가 되겠다라던가
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0116 유명한 사진가가 되겠다라던가
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0117 그런 생각을 한 적은 한 번도 없었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0118 그냥 애초에 아무것도 가진 적이 없기 때문에
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0119 그냥 사진을 찍는 게 좋았고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0120 누군가 저에게 일을 주는 게 좋았습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0121 그러던 어느날 세월이 지나다 보니
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0122 자연스럽게 저에게 좋은 기회가 왔습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0125 한 16년 정도 됐죠
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0128 이 사진으로 해서 한국에서 제일 비싼 광고 사진가가 되었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0130 저는 어떻게 사는 게 잘 사는 건지에 대한
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0131 항상 물음표가 저한테 따라다녔어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0132 오늘도
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0134 오늘 아침에도 그런 질문을 저에게 했어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0135 어떻게 사는 게 잘 사는 것인가
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0137 다른 사람이 가진 걸 부러워하고 욕심내는 사이에
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0138 내가 진짜 가진 걸 잃을 수도 있겠구나
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0139 그러지 말아야지
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0140 많은 사람들이 내가 가진 것의 소중함을 모릅니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0141 내가 할 수 있는 일 나의 아들 나의 남편
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0143 다른사람들이 가진 것에 더 시선을 두고 더 부러워 하기도 합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0144 저도 가끔 그렇습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0146 다른 사진가가 하는 일이 더 좋은 일인 것 같은
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0147 그런 욕심이 생길 때도 있습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0148 물론 오늘도 그런 욕심이 생겼기 때문에 그런 일기를 쓰게 됐겠죠
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0149 제가 2004년이군요 벌써
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0150 2004년에 결혼을 했어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0152 나는 안 하고 뭐 하고 있는거야 나는 못하는 거야
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0154 그럼에도 불구하고 저는 결혼을 했죠
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0156 그리고 2006년에 임신을 했습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0158 그리고 아들을 얻었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0159 저 사진이 첫 번째 가족사진입니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0161 굉장히 못생겼군요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0162 지금이 더 예뻐요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0163 2006년에 애를 낳고 제가 다시 일을 시작했을 때
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0164 제가 한 8개월에서 정확히 기억은 안 나는데 10개월 정도 쉬었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0165 쉬고 다시 돌아왔는데 정말 전화 한통 없는 거에요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0168 그렇게 말합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0170 아 조선희라는 사람 아무것도 아니구나
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0171 오만하지 말라는 뜻이구나
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0172 제 아들이 준 첫 번째 선물이었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0173 조선희 오만하지 마라
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0174 너 아니래도 사진 잘 찍는 사람 많다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0175 저는 그 전에 제 일을 잘하고 열심히 하고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0176 그리고 사람들이 제 사진을 좋아하고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0177 그러면 된다고 생각했었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0178 한 번도 사회에 제 도움이 필요한 분야에 대해서 생각해 본 적이 없었죠
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0179 근데 임신한 그 때 불현듯 그런 생각이 들었어요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0180 나도 세상에 필요한 일에 관심을 기울이고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0181 기부도 하고 재능기부도 해야겠다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0184 첫 번째 위에 왼쪽에 있는 분은 싱글맘이신데
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0185 아름다운 재단과 같이 했던
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0186 싱글맘을 위한 기부를 위한 일이었구요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0187 두 번째 위쪽의 오른쪽 거는
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0188 류마티스 관절염을 겪고 있는 여성분들을 위한 재능기부였습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0189 밑에는 나눔의 집에 있는
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0190 위안부 할머니들의 초상사진이라고 해야 될까요 인물 사진이었습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0192 제 아들에게 나중에 크면 꼭 그 말을 하고 싶습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0193 너 덕분에 엄마는 덜 이기적으로 살았다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0194 물론 저는 아직도 이기적으로 살고 있습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0196 근데 아마도 그 말은 저희 아들에게 늘
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0197 저희 아들이 좀 더 크면 그 말을 이해할 수 있을 때
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0198 꼭 하고 싶은 말입니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0199 저는 아들을 낳고 참 고민이 됐습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0200 좋은 엄마가 되기에는 굉장히 나 자신을 사랑하는 이기적인 사람인데
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0201 어떡하면 좋을까
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0202 그 때 제가 친한 언니가 저한테 이런 말을 했습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0203 그렇다면 슈퍼맘이 되려고 하지 마라
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0204 10분을 놀아도 네 아들이 우리 엄마는 날 너무 사랑하는구나
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0207 사실 그 언니는 그 말을 저에게 했는지 기억 잘 못합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0209 근데 저는 그 말이 너무 가슴에 와 닿았습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0210 그래서 지금도 10분을 놀더라도 한달에 하루를 같이 보내더라도
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0211 정말 그 친구를 위해서 최선을 다합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0212 이거는 일주일 전에 제가 요르단으로 여행을 갔다 왔습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0213 요르단 사진입니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0215 결혼을 했나요 자식은 있나요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0220 아들은 집에 있다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0222 저는 사실 아들을 내팽게치고
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0224 저희 아들이 그 날 아침에
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0225 돌아오는 날 아침에 공항에 나왔더군요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0228 엄마 너무 피곤해서 어떡해요
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0230 언젠가 제 꿈은 저의 아들과 남미 여행을 하는 겁니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0233 남미 여행을 같이 하면서 정말 삶에 대해서
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0234 엄마와 아들로서가 아닌
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0236 35살 차이 나는 친구로서
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0237 인생을 얘기하면서 같이 여행하고 싶은 게 제 꿈입니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0238 그리고 제 꿈은 아까 말씀드렸듯이
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0239 저의 아들이 나중에 이 세상에서 저는 저희 엄마가 제일 멋있습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0240 라고 말하는 엄마가 되고 싶습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0242 30년 후에도 사진기를 들고 그냥 저 자신을 사랑하면서
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0243 제 아들을 친구라고 생각하면서 사는 그런 할머니가 되고싶습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0246 무언가 둘 중의 하나는 약간 포기해야 된다고 생각합니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0248 저를 더 많이 사랑하는 걸 선택했습니다
+- 7KGw7ISg7Z2s-LG0cLnZDYdg-0249 매일 행복한 일맘을 응원합니다

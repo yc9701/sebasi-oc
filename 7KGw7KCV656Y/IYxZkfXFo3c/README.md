@@ -1,0 +1,184 @@
+### Sebasi Open Corpus: (Kor, Eng) 세바시 739회 영화 귀향, 끝나지 않은 이야기 | 조정래 영화감독, 영화 '귀향' 연출
+
+- Speaker: 조정래
+- Gender: 
+- Length: 11:36 in 171 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=IYxZkfXFo3c] (https://www.youtube.com/watch?v=IYxZkfXFo3c)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7KGw7KCV656Y-IYxZkfXFo3c-0002 저는 영화 귀향 을 연출한 영화감독 조정래라고 합니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0004 보통 사실 조정래라고 하면은
+- 7KGw7KCV656Y-IYxZkfXFo3c-0005 태백산맥과 아리랑을 쓰신 대작가이신
+- 7KGw7KCV656Y-IYxZkfXFo3c-0006 우리 조정래 작가 선생님을 생각을 많이 하실텐데요
+- 7KGw7KCV656Y-IYxZkfXFo3c-0009 지금도 제가 제일 많이 받는 질문이
+- 7KGw7KCV656Y-IYxZkfXFo3c-0012 영화도 만들 수 있었는지
+- 7KGw7KCV656Y-IYxZkfXFo3c-0013 굉장히 궁금해하시고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0014 또 굉장히 많은 분들께서 저렇게 조정례라고 쓰십니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0015 제가 학창시절에서부터 지금까지 제 별명이 점례였습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0018 여기 계신 분들과 국민 여러분들의 너무나 많은 사랑을 받았던
+- 7KGw7KCV656Y-IYxZkfXFo3c-0019 영화 귀향 때문에 아마 생긴 그런 감사함이라고 생각합니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0020 그래서 이 자리를 통해서 그분들께 감사하다는 말씀을 드리고 싶습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0022 저는 오늘 영화에 대해서 또 영화에 관한 이야기를 하기 전에
+- 7KGw7KCV656Y-IYxZkfXFo3c-0023 영화 귀향에 대해서 안 보셨던 분들을 위해서 잠깐 설명을 드리고자 합니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0024 영화 귀향은 위안부 피해자 소녀들을 다룬 이야기로써
+- 7KGw7KCV656Y-IYxZkfXFo3c-0025 제 2차 세계대전 일본의 성노예로 끌려가서 모진 고초를 당하시고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0027 또 비록 영화에서나마 그분들을 고향으로 모셔서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0028 따뜻한 밥 한 술을 올리고 싶다라는 그런 마음을 가지고 만든 영화가
+- 7KGw7KCV656Y-IYxZkfXFo3c-0029 바로 영화 귀향 입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0030 일본군 위안부 일본군 성노예 문제는
+- 7KGw7KCV656Y-IYxZkfXFo3c-0031 미국 의회와 유엔 인권위원회에서 규정한 전쟁 범죄입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0032 일본의 학자가 주장하는 가장 보수적인 숫자인 약 20만명에 이르는 소녀들이
+- 7KGw7KCV656Y-IYxZkfXFo3c-0033 강제연행 납치 그리고 취업 사기 등의 그런 이유로 끌려가서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0034 정말 수많은 분들이 죽임을 당했고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0035 그 중에 극히 일부분만이 생존해서 돌아오신
+- 7KGw7KCV656Y-IYxZkfXFo3c-0037 저는 2002년 위안부 피해자 할머니들의 쉼터인
+- 7KGw7KCV656Y-IYxZkfXFo3c-0038 경기도 광주 태촌에 있는 나눔의 집에 봉사활동을 하러 갔었습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0039 저는 그 곳에서 할머니들을 만나 뵙고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0043 바로 이것이었습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0044 비록 겉은 할머니의 모습을 하고 있지만
+- 7KGw7KCV656Y-IYxZkfXFo3c-0046 저는 너무나 많이 충격에 빠졌습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0047 할머니들의 눈은 당신들이 끌려갔던 그날 그대로 멈춰있었습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0051 태워지는 처녀들이라는 그림을 보게됩니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0052 바로 이 그림입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0053 어떠십니까
+- 7KGw7KCV656Y-IYxZkfXFo3c-0055 저는 당시 처음에 이 그림을 보면서 도무지 이해 할 수가 없었습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0056 16살 나이로 경상북도 상주에서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0057 어머니의 젖을 만지면서 놀던 소녀 강일출은
+- 7KGw7KCV656Y-IYxZkfXFo3c-0058 강제로 연행되서 강제로 끌려가서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0059 중국 목단강에 끌려가게 됩니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0060 그곳에서 하루에도 20명에서 50명의 군인들을 받다가
+- 7KGw7KCV656Y-IYxZkfXFo3c-0062 그래서 장티푸스라는 병에 걸리게 됩니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0064 병을 고쳐주겠다는 약속을 하고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0065 바로 저 트럭에 태우게 됩니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0066 하지만 트럭이 도착한 곳은 병원이 아니라
+- 7KGw7KCV656Y-IYxZkfXFo3c-0068 바로 그곳에서는 수많은 처녀들이 저렇게 불에 타고 있었습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0069 저런 절체절명의 순간에 광복군과 일본군이 교전을 하게되고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0070 할머니는 극적으로 그 지옥같은 현장을 벗어날 수 있었습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0071 미얀마에 있는 외곽에서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0072 조선인 위안부로 보이는 시신들이
+- 7KGw7KCV656Y-IYxZkfXFo3c-0073 죽임당하고 매장되어 있는 바로 그 현장이
+- 7KGw7KCV656Y-IYxZkfXFo3c-0074 여러분들이 보시고 있는 이 사진입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0075 이렇듯이 너무나 많은 소녀들이 여성들이
+- 7KGw7KCV656Y-IYxZkfXFo3c-0076 당시에 지옥같은 현장에서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0078 제가 귀향이라는 영화를 설명하면서 가장 많이 드리는 말씀이
+- 7KGw7KCV656Y-IYxZkfXFo3c-0080 영화를 만들기까지 14년이라는 시간이 걸렸습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0081 그리고 500명이나 넘는 배우와 스태프분들을 만나기까지
+- 7KGw7KCV656Y-IYxZkfXFo3c-0082 수없는 거절의 시간이 있었습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0083 그리고 천명이 넘는 분들을 만나면서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0085 개인적으로는 너무나 고통스러운 시간이었고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0086 가족들한테는 얼굴을 들어서 볼 수 없는 면목없는 죄인이었습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0087 하지만 오늘은 제가 여러분들께 함께 나누고자 하는 이야기는
+- 7KGw7KCV656Y-IYxZkfXFo3c-0088 그런 어렵고 힘들었던 역경에 대해서 말씀 드리는 것이 아니라
+- 7KGw7KCV656Y-IYxZkfXFo3c-0089 여러분들과 함께 나눌 수 있는 희망에 대한 이야기를 하려고 합니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0090 오늘 저는 여러분께 3가지 만남에 대한 이야기를 드리고자 합니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0091 우리 영화에서 어쩌면 가장 결정적인 순간이 되었던 3가지 만남
+- 7KGw7KCV656Y-IYxZkfXFo3c-0092 저는 이 이야기를 통해서 여러분들과 감히 희망을 이야기하고 싶습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0093 먼저 제가 이야기를 함께 나누고 싶은 분은 바로 이분입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0094 영화를 아마 보신분들은 잘 아시겠지만
+- 7KGw7KCV656Y-IYxZkfXFo3c-0096 정말 때리고 싶을 정도로 미운 분들이 계실 겁니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0097 바로 이분은 우리 영화 귀향에서 최고의 일본군 악역을 연기한 정무성씨입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0098 제가 정무성씨를 만난것은 4년전입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0099 당시에 저는 일본군 역을 맡을 배우들을 찾아서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0101 하지만 아시다시피 그런 배우를 찾는것은 정말 하늘의 별따기
+- 7KGw7KCV656Y-IYxZkfXFo3c-0103 그러던 어느날 제가 전화 한 통을 받습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0105 후원을 하시겠다고 감사한 연락이 왔어요
+- 7KGw7KCV656Y-IYxZkfXFo3c-0106 제가 그자리에서 바로 저 정무성씨를 처음 만났습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0107 보자마자 저는 생각했습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0108 아 이 사람이 기노시타구나 그렇게 생각했습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0109 그래서 제가 그 말씀을 드렸어요 기노시타 같습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0110 기노시타가 뭔가요
+- 7KGw7KCV656Y-IYxZkfXFo3c-0111 그래서 영화에 대해서 제가 설명을 드렸어요
+- 7KGw7KCV656Y-IYxZkfXFo3c-0113 마지막에 나비가 돼서 고향으로 돌아오는
+- 7KGw7KCV656Y-IYxZkfXFo3c-0114 그런 할머니들의 영혼 소녀들의 영혼을 얘기하니까
+- 7KGw7KCV656Y-IYxZkfXFo3c-0115 그분은 눈물을 참지 못했습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0117 우리 영화의 든든한 후원자이자 연기자로서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0120 당연히 전부 다 비전공 연기자였습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0122 그리고 이름을 밝히진 않고 이름을 밝힐 수도 없었지만
+- 7KGw7KCV656Y-IYxZkfXFo3c-0124 정치적인 소재가 아니냐
+- 7KGw7KCV656Y-IYxZkfXFo3c-0125 그리고 이 영화를 만들게 되면은
+- 7KGw7KCV656Y-IYxZkfXFo3c-0127 이런 고민과 걱정을 하는 수많은 사람들의 걱정을 뿌리치고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0128 이분들은 자비로 비행기 티켓을 끊고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0129 그리고 우리 영화에 와서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0131 주인공인 강하나역 역시
+- 7KGw7KCV656Y-IYxZkfXFo3c-0132 오사카에 거주하고 있는 제일교포 4세입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0134 강하나양 역시 당시에 출연을 결심했던 나이가 중학교 2학년입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0135 실제로 할머니들이 끌려가셨던 나이이지요
+- 7KGw7KCV656Y-IYxZkfXFo3c-0136 중학교 3학년때 이 영화에 출연하기까지
+- 7KGw7KCV656Y-IYxZkfXFo3c-0137 본인이 얼마나 노력하고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0138 얼마나 부모님을 설득하고 고생했는지 모릅니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0139 이렇듯 타향 일본땅에서 우리 조국의 우리 한민족의 뿌리를 잊지 않고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0140 끊임없이 차별 받으면서도 그것을 지키고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0142 마찬가지로 고통 속에서 돌아가신 수많은 위안부 피해 영령들과 그 소녀들
+- 7KGw7KCV656Y-IYxZkfXFo3c-0143 할머니들의 아픔에 동참했습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0144 저는 또 다른 만남에 대해서 말씀드리고자 합니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0145 바로 우리 이 시대에 어머니를 표상하고 있는
+- 7KGw7KCV656Y-IYxZkfXFo3c-0147 어렵사리 구한 그런 일본군들과 소녀들의 이야기도
+- 7KGw7KCV656Y-IYxZkfXFo3c-0148 눈물 없이는 사실 들을 수 없는 이야기이지만
+- 7KGw7KCV656Y-IYxZkfXFo3c-0149 저는 이 손숙 선생님의 이야기를 여러분께 나누고자 하는 것은
+- 7KGw7KCV656Y-IYxZkfXFo3c-0150 이분이 보여주신 인품과 용기 덕분입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0151 이 영화를 준비할 때 정말 많은 분들께 출연의 준비를 하고 부탁드렸지만
+- 7KGw7KCV656Y-IYxZkfXFo3c-0152 잘 되지 않았습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0153 그러던 어느날
+- 7KGw7KCV656Y-IYxZkfXFo3c-0154 손숙 선생님께 시나리오를 제가 드렸었는데 전화가 왔어요
+- 7KGw7KCV656Y-IYxZkfXFo3c-0155 달려갔습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0156 아주 반가운 마음에 달려가면서도 걱정이 앞섰습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0157 선생님의 개런티를 얼마를 드려야 하나 걱정을 많이 했습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0158 그 극장에서 선생님이 제게 이렇게 말씀하셨습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0159 나 시나리오를 보고 너무 너무 많이 울었어 조감독
+- 7KGw7KCV656Y-IYxZkfXFo3c-0160 나 이 영화 출연할 거야
+- 7KGw7KCV656Y-IYxZkfXFo3c-0161 그리고 참고로 이야기하는데 나는 개런티를 받지 않겠습니다 라고 하셨어요
+- 7KGw7KCV656Y-IYxZkfXFo3c-0162 저는 제 귀를 의심했습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0163 그래서 감동의 표현을 하기도 전에
+- 7KGw7KCV656Y-IYxZkfXFo3c-0164 선생님께서 바로 말씀을 이어가셨어요
+- 7KGw7KCV656Y-IYxZkfXFo3c-0165 그런데 조감독 만약에 네가 마음에 찔리면 나한테 인센티브를 줘 영화 잘 되면
+- 7KGw7KCV656Y-IYxZkfXFo3c-0167 나중에 손숙 선생님은 이 약속을 지키셨습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0169 선생님의 출연이 결정되자마자
+- 7KGw7KCV656Y-IYxZkfXFo3c-0170 영화는 정말 비약적으로 도약을 할 수 있었습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0171 선생님의 대중적인 인지 인지도 그리고 선생님의 인품 이런것 때문에
+- 7KGw7KCV656Y-IYxZkfXFo3c-0172 수많은 배우들이 영화 귀향에 드디어 동참 할 수 있었고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0175 바로 12억이나 되는 돈을 모금해주신
+- 7KGw7KCV656Y-IYxZkfXFo3c-0176 75270명의 국민 여러분들과의 만남입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0178 수많은 분들의 이름이 저렇듯이 올라갑니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0179 저 엔딩 크레딧을 보고 끝까지 눈물을 참고 있다가
+- 7KGw7KCV656Y-IYxZkfXFo3c-0180 엔딩 크레딧을 보고 울었다고 하시는
+- 7KGw7KCV656Y-IYxZkfXFo3c-0181 관객분들의 너무나 감사한 메일을 많이 받았습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0183 바로 국민들의 힘이 있었기 때문입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0184 국회의원이나 정치인을 비롯해서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0185 이 사회에서 많이 힘이 있다고 하는 분들을
+- 7KGw7KCV656Y-IYxZkfXFo3c-0186 저는 수도없이 많이 찾아갔습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0187 그럴때마다 굉장히 민감한 소재이니까 제 이름은 빼주십시오
+- 7KGw7KCV656Y-IYxZkfXFo3c-0190 또 때로는 제게 시나리오를 집어 던지면서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0192 저에게 호통을 치기도 했습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0193 그럴때 국민들이 나서 주셨습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0194 12억이라는 돈은 백 원 천 원 만 원으로
+- 7KGw7KCV656Y-IYxZkfXFo3c-0196 요즘같이 힘들고 경제가 어려운데 그리고 요즘의 문제도 아닌데
+- 7KGw7KCV656Y-IYxZkfXFo3c-0199 만들어질 수 없다고 확신을 하고 있을 때
+- 7KGw7KCV656Y-IYxZkfXFo3c-0201 국민 여러분들께서 힘을 보태주셨습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0203 수없이 많은 댓글과 메일과 편지를 통해서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0204 쓰러져가고 힘들어하는 우리 배우와 스태프들
+- 7KGw7KCV656Y-IYxZkfXFo3c-0206 저는 오늘 영화를 탄생시킨 3가지 만남에 대해서 말씀드리면서
+- 7KGw7KCV656Y-IYxZkfXFo3c-0207 믿음과 용기 그리고 국민의 힘을 말씀드렸습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0208 하지만 진짜 기적은 지금 우리 주변에서 일어나고 있습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0209 불의와 부정으로 얼룩진 대한민국을 바로잡고자
+- 7KGw7KCV656Y-IYxZkfXFo3c-0210 광장에 모여서 촛불을 드는 바로 우리 국민들의 기적입니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0211 지금 이 나라의 민주주의를 지키고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0212 잘못된 역사를 바로잡고자 하는 기적의 힘은
+- 7KGw7KCV656Y-IYxZkfXFo3c-0213 우리 자신한테 있었다고 저는 생각합니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0214 아무도 만들지 못 할 것이라고 믿었던 그런 엄중한 시기 속에서도
+- 7KGw7KCV656Y-IYxZkfXFo3c-0215 남들이 전부다 욕하면서 손가락질하는 일본땅에서 조국을 지키고
+- 7KGw7KCV656Y-IYxZkfXFo3c-0216 그것을 계속 견지하고 살아왔던
+- 7KGw7KCV656Y-IYxZkfXFo3c-0219 소수의 몇몇 불의를 더 이상 지켜보지 않고 제대로 바로잡고자 하는 우리들
+- 7KGw7KCV656Y-IYxZkfXFo3c-0220 국민들의 그 힘이야 말로 우리들의 희망이라고 저는 생각합니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0221 영화 귀향은 앞으로의 행보는 이렇습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0223 그리고 제가 약속드린 그리고 약속한 믿음
+- 7KGw7KCV656Y-IYxZkfXFo3c-0224 영화 한번 상영 할 때마다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0225 타지에서 돌아가신 영령들이 고향으로 돌아온다는 그 믿음
+- 7KGw7KCV656Y-IYxZkfXFo3c-0226 지금까지 20만명의 피해자들 중에서 92000분이 고향으로 돌아오셨습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0227 앞으로 10만회가 더 남았습니다
+- 7KGw7KCV656Y-IYxZkfXFo3c-0228 계속해서 그 상영회가 이어 나갈 때까지
+- 7KGw7KCV656Y-IYxZkfXFo3c-0229 제가 가진 모든 힘과 신명을 바치겠습니다

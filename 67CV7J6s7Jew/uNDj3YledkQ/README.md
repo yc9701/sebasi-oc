@@ -1,0 +1,202 @@
+### Sebasi Open Corpus: (Kor, Rus) 세바시 545회 내 감정을 책임질 때 찾아오는 자유 | 박재연 리플러스 대화교육 안내자
+
+- Speaker: 박재연
+- Gender: 
+- Length: 10:38 in 189 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=uNDj3YledkQ] (https://www.youtube.com/watch?v=uNDj3YledkQ)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 67CV7J6s7Jew-uNDj3YledkQ-0004 아 정말 많은 분들이 오셨네요
+- 67CV7J6s7Jew-uNDj3YledkQ-0005 반갑습니다 박재연입니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0007 오늘 우리 주제가 lt내일을 부탁해gt에서 내 감정을 책임질 때 찾아오는 자유죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0008 제목 어떠세요 마음에 드세요
+- 67CV7J6s7Jew-uNDj3YledkQ-0009 네
+- 67CV7J6s7Jew-uNDj3YledkQ-0010 내용은 다소 무거울까봐 제가 뒤에서 굉장히 걱정을 많이 하고 있었는데요
+- 67CV7J6s7Jew-uNDj3YledkQ-0011 앞에 연사분들께서 여기 계신 여러분들을 너무 즐겁게 도와주셔서
+- 67CV7J6s7Jew-uNDj3YledkQ-0012 저도 뒤에서 같이 웃고 있었어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0013 우선 지금 저한테 올라온 여러 가지 감정들이 있는데요
+- 67CV7J6s7Jew-uNDj3YledkQ-0014 첫 번째는 반가워요
+- 67CV7J6s7Jew-uNDj3YledkQ-0015 저는 직업상 많은 분들 특히 관계가 많이 와해되고 오해되신 분들과 함께
+- 67CV7J6s7Jew-uNDj3YledkQ-0016 여러 시간 또 주기적으로 만나면서
+- 67CV7J6s7Jew-uNDj3YledkQ-0017 그 갈등 관계를 다시 회복시키도록 돕는 일을 하고 있습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0019 중점적으로 깊이 있게 다루는 그런 직업을 가지고 있어서
+- 67CV7J6s7Jew-uNDj3YledkQ-0022 제 삶에도 어떤 위기가 왔는데요
+- 67CV7J6s7Jew-uNDj3YledkQ-0023 약 한 지금으로부터 2006년 한 10년 가까이 된 것 같아요
+- 67CV7J6s7Jew-uNDj3YledkQ-0024 10년이라는 시간이 지나서 제가 다행히 여기까지 올 수 있었던 것 같습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0025 10년 전에 저는 한 가지 사실을 깨달았어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0026 제 주변의 관계들을 이렇게 돌아볼 계기가 저한테는 있었는데요
+- 67CV7J6s7Jew-uNDj3YledkQ-0028 우리 가까운 관계 하면 떠오르는 게 가족 떠오르시죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0031 네 있으실 겁니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0032 제가 외롭고 힘들고 지칠 때
+- 67CV7J6s7Jew-uNDj3YledkQ-0033 누군가와 깊이 있게 나눌 수 있는 대상이 내 주변에 없다는 사실을 깨달았어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0034 그리고 제 방식은요
+- 67CV7J6s7Jew-uNDj3YledkQ-0035 제가 그렇게 할 수 없었던 이유는 대부분 그 사람들 때문이라고 생각하고 살았어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0036 내가 힘들 때 나를 이해해주지 않았기 때문이라고 생각했고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0037 내가 외로울 때 내 곁에 있어 주지 않았기 때문이라고 생각했어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0038 그리고 또 하나의 저에게 아주 중요한 인물이 있는데요
+- 67CV7J6s7Jew-uNDj3YledkQ-0044 제 방에 살짝 갖다 놓은 쪽지였습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0045 여기 한번 같이 보시면 아시겠지만
+- 67CV7J6s7Jew-uNDj3YledkQ-0046 사랑이라는 단어가 나오죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0048 저는 사랑이 많은 사람이고 싶었어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0049 그리고 그것이 우리 관계에 굉장히 큰 도움이 된다는 걸 알고 있었고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0051 제가 그걸 개선하기 위해서 무언가를 해야 할 지를 모르는 상황에서 이 편지를 아들에게 받았습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0052 그리고 제가 본 그리고 아들의 눈을 통해서 본 저는 굉장히 무섭고 폭력적인 엄마였어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0054 내 삶을 내가 지금 당장 바꾸지 않는다면
+- 67CV7J6s7Jew-uNDj3YledkQ-0055 나의 모든 관계들은 좋아질 수 없겠구나
+- 67CV7J6s7Jew-uNDj3YledkQ-0056 그리고 나서 제 관계를 봤더니
+- 67CV7J6s7Jew-uNDj3YledkQ-0058 제가 힘든 이유는요 우리 애가 말을 안 듣기 때문이고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0060 내가 정말 억울할 때는요
+- 67CV7J6s7Jew-uNDj3YledkQ-0061 내 진실을 알아주는 사람이 없기 때문이라고만 생각하고 살았던 거예요
+- 67CV7J6s7Jew-uNDj3YledkQ-0062 그런데 그게 아니라 내가 지금 내 삶을 바꿔나가지 않으면
+- 67CV7J6s7Jew-uNDj3YledkQ-0065 더 나아가서는 나의 사회적인 관계
+- 67CV7J6s7Jew-uNDj3YledkQ-0066 그것들이 내 미래를 가로 막겠구나 하는 위기감을 느꼈던 것 같습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0067 그리고 나서 제가 찾은 하나의 제 아주 오래된 친구가 있어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0068 저는 친구라고 생각하고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0070 빅터 프랭클이라고 아마 여러분들께서도 많은 책을 보셔서 아실 지도 모르겠습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0071 여기를 보면 자극과 반응 사이에 공간이 있다고 나옵니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0072 그리고 이 공간에서의 우리의 선택이 우리 삶의 질을 결정한다고 나오고 있어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0073 그런데 저는 여기에서 깜짝 놀랐습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0074 무엇 때문에 놀랐냐면
+- 67CV7J6s7Jew-uNDj3YledkQ-0075 이 선택이라는 단어 때문에 놀랐어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0076 제 삶에 선택이라는 건 사실 없다고 생각했거든요
+- 67CV7J6s7Jew-uNDj3YledkQ-0077 하기 싫지만 해야 되는 일만 있었고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0079 아들이니까 당연히 해야 되는 일들이 있었고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0080 나의 직장 상사니까 그 사람들이 나에게 해줘야 되는 일은 있었지만
+- 67CV7J6s7Jew-uNDj3YledkQ-0085 여러분들 혹시 A4용지 두 장씩과 매직을 받으셨나요 네
+- 67CV7J6s7Jew-uNDj3YledkQ-0089 그리고 지금 여러분들은 모두 나입니다 우리는 모두 나예요
+- 67CV7J6s7Jew-uNDj3YledkQ-0090 토요일날 오전 9시에 친구가 우리집에 놀러오기로 했습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0091 그런 상황이에요
+- 67CV7J6s7Jew-uNDj3YledkQ-0092 그래서 저는 우리는 나는 그 전날 음식도 준비해 놨구요
+- 67CV7J6s7Jew-uNDj3YledkQ-0094 그렇게 잠이 들었어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0095 토요일날 아침이 됐고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0096 저는 일찍 일어나서 준비를 하고 있었어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0097 근데 8시에 친구에게 연락이 왔습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0098 뭐라고 얘기를 했냐면
+- 67CV7J6s7Jew-uNDj3YledkQ-0100 다음 주에 갈게 라고 문자가 왔습니다 연락이 왔어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0101 자 지금 우리가 모두 나라면
+- 67CV7J6s7Jew-uNDj3YledkQ-0102 지금 여기에서 여러분들이 어떤 느낌이 들 지를 떠오르시는 대로
+- 67CV7J6s7Jew-uNDj3YledkQ-0103 여기서 바로 딱 적어서 한번 들어 주세요
+- 67CV7J6s7Jew-uNDj3YledkQ-0104 제가 볼 수 있게요 이곳에서요
+- 67CV7J6s7Jew-uNDj3YledkQ-0106 다른 느낌들 여러분이 떠오르시는 느낌들을 자연스럽게 써 주셔도 됩니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0107 딱 떠오르는 걸 써서 들어 주시면 됩니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0108 네 화도 나시고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0109 김도 빠지시네요 속상하기도 하시고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0112 김도 빠지시고 걱정도 되시고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0113 네 걱정 되시고 짜증나시고요 섭섭하시죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0114 기분이 안 좋고 꺼져라고 쓰신 분도 계시구요
+- 67CV7J6s7Jew-uNDj3YledkQ-0116 감사합니다 이제 내려주시고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0117 같은 상황입니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0118 두 번째 종이를 꺼내 주시고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0121 미안해 내가 급한 일이 생겨서 못 갈 것 같애 다음 주에 갈게
+- 67CV7J6s7Jew-uNDj3YledkQ-0122 그런데 그날 아침 내가 7시에 일어났어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0123 근데 몸이 너무너무 안 좋아요
+- 67CV7J6s7Jew-uNDj3YledkQ-0124 만사가 다 귀찮습니다 꼴도 보기 싫어요 아무도
+- 67CV7J6s7Jew-uNDj3YledkQ-0126 그런데 이 친구의 문자를 받았습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0127 여기에서 떠오르는 느낌을 하나만 적어서 다시 들어주세요
+- 67CV7J6s7Jew-uNDj3YledkQ-0128 다행스러우시고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0129 신나시고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0130 앗싸 라고 적어주신 분도 계시고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0131 짜증난다는 분도 계시고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0132 잘됐다 고맙다 다행스럽다 안심이 된다
+- 67CV7J6s7Jew-uNDj3YledkQ-0135 자 자극은 어땠습니까
+- 67CV7J6s7Jew-uNDj3YledkQ-0139 달라지셨나요
+- 67CV7J6s7Jew-uNDj3YledkQ-0140 자 그럼 왜 우리가 이런 감정이 드는지 한번 볼게요
+- 67CV7J6s7Jew-uNDj3YledkQ-0141 아마 전자에서 내가 좀 속상하고 짜증스럽고 김도 빠지고 이랬을 때는
+- 67CV7J6s7Jew-uNDj3YledkQ-0142 우리한테 필요로 하는 게 달랐을 겁니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0144 그리고 또 하나는
+- 67CV7J6s7Jew-uNDj3YledkQ-0146 만약에 못 온다면
+- 67CV7J6s7Jew-uNDj3YledkQ-0149 그 이유가 뭘까요
+- 67CV7J6s7Jew-uNDj3YledkQ-0152 나한테 그런 시간이 좀 필요했습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0154 괜찮아 뭐 그럴 수도 있지 이해해
+- 67CV7J6s7Jew-uNDj3YledkQ-0155 그런데 전자라면 어떻죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0156 넌 도대체 생각이 있는거니
+- 67CV7J6s7Jew-uNDj3YledkQ-0157 못 오면 못 온다고 진작 얘기를 하지 사람 갖고 놀아
+- 67CV7J6s7Jew-uNDj3YledkQ-0159 이런 식으로 반응할 수 있다는 겁니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0160 자극은 같아도 우리가 다른 반응을 보이는 데에는요
+- 67CV7J6s7Jew-uNDj3YledkQ-0161 중요한 건 이 감정에 있는데요
+- 67CV7J6s7Jew-uNDj3YledkQ-0162 이 감정 뒤에는 우리가 필요로 하는 게 다르기 때문에 그렇습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0163 지금은 고인이 됐지만요
+- 67CV7J6s7Jew-uNDj3YledkQ-0164 제 삶에 아주 중요한 삶의 패러다임을 바꿔준
+- 67CV7J6s7Jew-uNDj3YledkQ-0165 비폭력 대화 의 마샬 로젠버그 박사가 한 말이 있었어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0166 느낌이라는 것은
+- 67CV7J6s7Jew-uNDj3YledkQ-0168 여러분들이 만약 어느 공간에서 외로움이 느껴진다면
+- 67CV7J6s7Jew-uNDj3YledkQ-0169 여러분들은 눈물이 날 수도 있고요
+- 67CV7J6s7Jew-uNDj3YledkQ-0170 그리고 아무 것도 하지 않고 혼자만의 공간으로 가서 상념에 잠길 수도 있습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0171 그런 것들은 우리에게 어떤 신호를 나타내 주고 있는 건데요
+- 67CV7J6s7Jew-uNDj3YledkQ-0172 무엇이 필요한 지를 나타내 주고 있는 신호라는 겁니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0173 제가 이런 것들을 사람들과 나눌 때 종종 받는 질문들이 있어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0174 이거는 좀 간단한 예잖아요
+- 67CV7J6s7Jew-uNDj3YledkQ-0175 물론 자극에 따라서 반응이 달라질 수 있고
+- 67CV7J6s7Jew-uNDj3YledkQ-0176 그 사이에 우리한테 중요한 욕구라는 게 있다는 거 좋습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0177 느낌에 책임질 수 있어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0179 라고 질문을 종종 받습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0182 제가 삼 일 밤낮을 꼬박 세우고 야근을 해서 만든 프로젝트가 있어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0184 자기 이름을 써서 기안서를 올립니다 너무 얄미워요
+- 67CV7J6s7Jew-uNDj3YledkQ-0185 그때 그 느낌의 책임이 저한테 있는 건가요
+- 67CV7J6s7Jew-uNDj3YledkQ-0188 놀이기구를 타기 위해서 40분 동안 줄을 섰는데
+- 67CV7J6s7Jew-uNDj3YledkQ-0191 때려주고 싶으세요
+- 67CV7J6s7Jew-uNDj3YledkQ-0192 그럴 때 이 느낌에 대한 책임도 나한테 있는 겁니까
+- 67CV7J6s7Jew-uNDj3YledkQ-0194 어린 시절에 많이 맞고 컸어요 너무 힘들게 컸어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0195 제대로 돌봄을 받지 못했어요 그래서 내가 컸는데
+- 67CV7J6s7Jew-uNDj3YledkQ-0196 지금 커서도 대인 관계를 맺는 데 많은 어려움을 겪고 있어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0197 순간순간 저 사람이 나를 사랑하지 않으면 어떡하지
+- 67CV7J6s7Jew-uNDj3YledkQ-0199 이런 것들이 두려워서 건강한 관계를 맺는 데 많은 방해를 받고 있어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0200 그렇다면 내가 지금까지 느끼고 있는 이 감정의 책임을 다 내가 지는 겁니까
+- 67CV7J6s7Jew-uNDj3YledkQ-0202 여러분들도 이 상황에서 느낌을 온전히 내가 책임진다는 것에 대해서는
+- 67CV7J6s7Jew-uNDj3YledkQ-0204 분명한 자극을 준 사람이 있기 때문에
+- 67CV7J6s7Jew-uNDj3YledkQ-0205 우리가 이 감정에 대한 책임을 진다는 것은요
+- 67CV7J6s7Jew-uNDj3YledkQ-0206 자기의 행동에 대해서 책임을 지는 것과는 조금 다른 것 같아요
+- 67CV7J6s7Jew-uNDj3YledkQ-0207 제가 6학년 한 아이를 상담을 한 적이 있었는데요
+- 67CV7J6s7Jew-uNDj3YledkQ-0208 그 학생은 아버지에게 많이 매를 맞았어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0210 고통이란 무릎팍을 파고드는 바늘과 같다 라고 이야기를 했습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0212 제가 누구보다 그 친구의 감정을 잘 알 거라고 생각했어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0213 왜냐하면 저도 어린 시절에 많이 아프게 컸거든요
+- 67CV7J6s7Jew-uNDj3YledkQ-0215 너는 아버지에게 정말 화가 났지 라고 이야기를 했어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0221 다만 슬퍼요
+- 67CV7J6s7Jew-uNDj3YledkQ-0224 저는 그 아이가 저의 진정한 리더라는 걸 깨달았어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0225 자신의 느낌에 대해서 책임을 진다는 것이 어떤 건지 그 아이는 저한테 보여줬죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0226 그리고 또 하나
+- 67CV7J6s7Jew-uNDj3YledkQ-0227 이 세상에 책임질 수 없는 느낌 당연한 느낌은 없었습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0228 마땅히 화나는 것은 우리 삶에 없었어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0229 그 리더들을 봤을 때 저는 4가지 요소를 발견할 수 있었습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0231 첫 번째 그 사람들은 자신의 삶을 그대로 드러낼 수 있어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0232 숨기지 않습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0234 두 번째는 그 사람들은 그 사건 뒤의 자신의 감정에 대해 굉장히 솔직했습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0235 내가 정말 아팠구나 내가 정말 두려웠구나
+- 67CV7J6s7Jew-uNDj3YledkQ-0236 그 상황에서 내가 필요한 것들은 무엇이었을까
+- 67CV7J6s7Jew-uNDj3YledkQ-0237 사랑이었구나 정말 적절한 보살핌이었구나
+- 67CV7J6s7Jew-uNDj3YledkQ-0238 그리고 그 상대를 욕구로 연결할 수 있습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0240 그리고 나서 그 사람들이 대화를 했습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0241 저는 우리가 미래를 나아가서 살자고 하지만
+- 67CV7J6s7Jew-uNDj3YledkQ-0243 혹은 상대의 느낌에 대한 책임을 내가 지면서 살아가는 많은 모습들을 봐요
+- 67CV7J6s7Jew-uNDj3YledkQ-0244 그러면서 우리는 건강한 미래를 꿈꾸고 있죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0245 그런데 그것이 얼마나 불가능한 건지를 저는 표현하고 싶어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0248 모기한테 많이 물렸고요 제가 속옷만 입고 있었어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0250 저는 부모님과 따로 떨어져 살고 있었습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0254 제 맞은편 집에 살고 있었던 친구가 저를 놀리기 시작했어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0255 너는 엄마도 없고 이불에 오줌이나 싼다고
+- 67CV7J6s7Jew-uNDj3YledkQ-0257 근데 크면서 그게 제 안에 엄청난 수치심으로 자라고 있다는 걸 알게 됐죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0258 그런 성장 과정을 보냈습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0259 근데 그 친구가 제가 성인이 돼서 연락이 왔어요 만나자고
+- 67CV7J6s7Jew-uNDj3YledkQ-0260 저는 그때 느꼈던 그 느낌들을 다시 되살려 봤습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0264 제 자신이 얼마나 그 당시에 두려웠는가
+- 67CV7J6s7Jew-uNDj3YledkQ-0268 이런 게 내 삶에 굉장히 중요했다는 걸 알게 됐습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0270 그래서 이번에는 그 친구가 그 행위 뒤에 어떤 것을 원했는가를 보기 시작했어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0271 이 친구는 서로를 배려하면서 대화한다는 게 무엇인지 잘 배우지 못했구나
+- 67CV7J6s7Jew-uNDj3YledkQ-0272 그걸 좀 깨닫게 됐죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0273 그리고 현재 나하고 다시 깊이 연결되고 싶어한다는 것을 알 수 있었습니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0274 그리고 나서 우리가 사실은 대화를 하는 거죠
+- 67CV7J6s7Jew-uNDj3YledkQ-0276 너 때문에 내가 얼마나 힘들었는지 알아
+- 67CV7J6s7Jew-uNDj3YledkQ-0277 이제 와서 나한테 무슨 얘기를 하겠다고 연락을 한 거야
+- 67CV7J6s7Jew-uNDj3YledkQ-0278 라고 얘기를 했을 지 모릅니다
+- 67CV7J6s7Jew-uNDj3YledkQ-0279 근데 저는 그 친구에게 이야기를 했어요
+- 67CV7J6s7Jew-uNDj3YledkQ-0280 너한테 다시 연락을 받았을 때 내가 굉장히 긴장이 되고 마음이 아팠어
+- 67CV7J6s7Jew-uNDj3YledkQ-0282 나한테는 친구들 간의 우정 그리고 내가 얼마나 힘들었는지에 대해서
+- 67CV7J6s7Jew-uNDj3YledkQ-0283 배려받고 돌봄이 충분히 이뤄지는 게 굉장히 중요했었어
+- 67CV7J6s7Jew-uNDj3YledkQ-0286 미래로 나아간다는 건
+- 67CV7J6s7Jew-uNDj3YledkQ-0290 강연 들어주셔서 감사합니다

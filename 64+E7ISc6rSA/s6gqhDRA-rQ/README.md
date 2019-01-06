@@ -1,0 +1,167 @@
+### Sebasi Open Corpus: 덕후에서 콘텐츠 크리에이터가 되는 방법 | 대도서관 콘텐츠 크리에이터| 행복 콘텐츠 유튜버 엉클대도 | 세바시 991회
+
+- Speaker: 도서관
+- Gender: 
+- Length: 7:56 in 154 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=s6gqhDRA-rQ] (https://www.youtube.com/watch?v=s6gqhDRA-rQ)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0002 안녕하세요 안녕하세요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0003 네 안녕하세요 대도서관입니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0007 고맙습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0008 유튜브 영상으로 보시는 분들은 제가 좀 못생긴 줄 아시더라고요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0012 15분 후에 여러분들이
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0013 다들 유튜브 채널을 만들길 기원하면서
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0014 여러분들에게 뽐뿌를 넣어보도록 하겠습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0015 유튜브는 유통의 혁명입니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0019 제가 서울에 있는 우리 집에서 영상을 만들어서 올려서 놓게 되면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0020 서울에 있는 누군가도 볼 수 있고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0021 제주도에 있는 누군가도 볼 수가 있지요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0022 그럴 때는 한국 광고가 달리고 한국 광고 단가가 먹여집니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0023 그리고 그 영상 그 자체를
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0025 그렇다면 거기에는 어떤 일이 벌어질까요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0026 미국 광고가 달리고 미국 광고단가가 먹여집니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0030 이 말인즉슨 바꿔 말하면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0031 제가 콘텐츠를 만들어서 서울에서 올리면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0032 그것을 어떤 유통라인도 거치지 않고 미국에다 판매한 겁니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0035 내가 콘텐츠를 만들어도 팔 곳이 없으면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0037 하지만 그런 유통라인이 완전히 혁명 되었기 때문에
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0038 이제 세상이 바뀌었다고 믿으셔도 좋습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0039 그리고 유튜브를 통해서 많이 돈을 버는 사람들도 있지요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0044 옛날에 집에서 고등학교를 졸업하고 나서
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0046 아버님이 돌아가시는 바람에 집에서 일이나 돕자고 싶어가지고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0047 친구랑 입시원서장까지 갔다가
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0048 야 그냥 집에 가자 일이나 하자 라고 해서 갔는데
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0049 일은 안 하고 집에서 게임만 했습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0051 야 제발 나가서 술이나 좀 마시라고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0053 그런데 그런 어머니께서 지금의 저를 본다면 굉장히 기쁘셨겠지요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0054 하지만 지금은 보실 수가 없습니다 왜냐면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0055 제가 이 일을 시작하기 전에 이미 돌아가셨기 때문입니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0059 일년에 17억 정도 수익을 유튜브로 올리고 있고요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0060 그리고 그걸로 통해서 엉클대도라는 조그만 회사를 만들어서
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0061 1인 미디어 전문가 집단이라는 컨셉으로
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0062 조금 조금씩 여러 가지 재미난 것들을 해보고 있습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0064 돈을 벌라는 말이 절대 아닙니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0065 거기서 느껴지는 성취감 성취감을 느껴보라는 겁니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0067 삶은
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0068 성취감 때문에 이뤄진다고 생각해요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0069 성취감이 있어야지 사는 재미가 있는 겁니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0071 공부를 맨날 공부를 해라 해라 해라 하는데
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0076 아닐걸요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0078 일단은 지금 내가 수익이 되는 길을 고르기 때문에
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0080 그럼 우리들에게 뭐가 쌓입니까
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0085 돈이 안 되니까
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0087 나의 인생에 도움은 안 돼 단 재미는 있지만
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0088 그리고 다른 사람들도
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0089 너 도대체 돈도 안 되는데 그걸 왜 해 라고 말하기도 하고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0091 어느 정도 나의 콘텐츠로 발현시킬 기회가 왔습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0093 물론 예전에도 블로그도 있었고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0096 지금처럼 유튜브가 명확하게 유통의 혁명을 일으켜서
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0097 콘텐츠가 돼서 그것이 돈까지 될 수 있는 기회는 많지 않았어요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0098 예전에 싸이월드 UCC 열풍 기억하십니까
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0099 너도 나도 텔미텔미 추던 그 시절
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0100 그때도 많은 분들이 아 나는 영상에 재능이 있어
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0101 라고 생각하고 영상을 시작하셨어요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0103 왜냐구요 돈이 안돼서요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0105 내가 지금 하고 있는 일을
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0106 얼마든지 계속 이끌어 갈 수 있는 원동력이 돼주거든요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0110 다른 일을 선택할 수밖에 없는 결과가 됩니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0111 그래서 유튜브로 영상을 만들면서 느끼는 성취감을 한 번 느껴보시라는 겁니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0113 그 성취감을 느끼고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0114 나를 좋아하는 사람들이 한 명 두 명 생길 때의
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0116 그럴 때야 말고 인생이 조금 조금씩 바뀌는 것들을 알 수가 있습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0117 그리고 거기서 더 나아가서 나 자신을 브랜드화시켜보는 겁니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0120 내 학력이나 내 경력은 생각보다 중요하지 않게 돼요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0122 내 실력과 내 재능에 그리고 나 자신의 개성에 초점을 두게 됩니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0124 화장품을 너무 좋아해서
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0125 유튜브 영상을 하나하나 올리기 시작했습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0127 2만 명이라고 하면 굉장히 많아 보이지만
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0132 어떤 상황이 펼쳐졌을까요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0134 이 영상만 봐도 이 링크만 보더라도
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0136 이 사람은 이렇게 화장품에 관심이 많았구나
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0138 이 사람은 화장품을 어떻게 발전시켰으면 좋겠는지 자기 생각이 있구나 라는 것들
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0139 그런 실력들이 그 안에 담아있기 때문에
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0141 뽑혔어요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0147 나의 커리어들을 점차 점차 쌓아간다는 생각들
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0150 한번 생각해보는 것도 좋은 방법입니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0152 지금 이 세상의 사람들에게는
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0154 예전이랑은 상대가 안 될 정도로 거의 무한에 가깝게 늘어났습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0159 그리고 그걸 지상파나 케이블이 일부러 안 하는 걸까요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0160 못하는 거예요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0165 그것이 바로 1인 미디어의 근간이에요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0166 예전에는 TV에서 틀어주는 거를 그냥 보고 받아들였다면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0167 지금은 내가 원하는 거 볼 거야 그리고 더 깊숙이 보고 싶어
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0168 라는 차원까지 넘어섰다는 겁니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0170 그렇기 때문에 유튜브에 있는 영상들을 찾아보기 시작하는 겁니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0171 그렇기 때문에 여러분이 가지고 있는 취미와 관심사
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0172 그것이 무엇이든 꺼내서 콘텐츠로 만들기 시작하면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0173 정말로 나도 모르는 사이에 많은 분들이 그 영상 콘텐츠를 찾기 시작합니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0176 저는 이렇게 말합니다 간단하게
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0177 생방송을 하지 마라
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0179 생방송은 아시다시피 여러분들이 직접 하시기에는 매우 어렵습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0181 매일 매일 해야 돼요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0182 그리고 매일 할 때 3시간 이상을 해야 됩니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0183 그리고 그 3시간을 오디오를 혼자서 풀로 채워야 돼요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0184 끊임없이 계속 말을 해야 됩니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0198 그리고 이 사이트가 적어도 나한테 바이러스를 심지 않는 믿음 때문에
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0199 그러기 때문에 그 사이트를 신뢰해서 많이 가시죠
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0201 오랜 기간 매일 매일 했다는 그런 신뢰도가 쌓여야지만
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0203 라고 믿기 때문에 점점 갑니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0205 그렇다면 초보자들은 어떻게 컨텐츠를 시작해야 되느냐
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0206 바로 유튜브입니다 유튜브
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0207 내가 말을 잘 못 하더라도 편집으로 살릴 수가 있습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0208 편집으로 살릴 수가 있고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0212 그리고 목소리가 안 좋다면 자막으로 처리해도 됩니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0213 여러 가지 방법들로 그렇게 만들고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0214 또 영상 콘텐츠가 길지 않아도 됩니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0215 짧아도 괜찮아요 나쁘지 않습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0219 그때까지가 집중력의 한계거든요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0220 유튜브 한 영상을 볼 때
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0221 그래서 보통 8분 이하로 만드는 것도 굉장히 좋습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0222 하지만 유튜브에서 가장 이상적인 콘텐츠는요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0224 유튜브는요 여러분이 알다시피
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0227 난리나겠지요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0229 그죠 옷 벗고 다리 부러뜨리고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0230 하지만 그렇게 주지 않습니다 절대로
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0240 그죠 하지만 아이들한테는
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0247 약간의 기획
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0249 시그니처 메뉴를 만들어야 되거든요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0254 같은 시간에 올리는 성실함 그것이 일 년 정도 쌓였을 때
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0258 아니 저 사람도 먹방하고 이 사람도 게임 방송하고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0260 하지만 그게 중요한 게 아닙니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0261 여러분들이 다 똑같은 것들을 하더라도
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0262 그 안에 달라 보이게 만드는 무언가를 넣어준다면요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0263 그게 바로 개성이거든요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0264 기획을 하라고 그러면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0265 굉장히 머리를 골똘히 하시는 분들이 있어요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0266 절대 그러지 않으셔도 됩니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0269 예를 들어서 지금 트랜드가 허니버터칩이라면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0271 나는 디저트를 하는 사람이니까 허니버터칩 먹방이 아니라
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0272 허니버터칩 모양의 디저트를 만들어 볼까
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0274 그 약간의 차이가 바로 좋은 기획이라고 할 수 있습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0276 자 그리고 최고의 개성이 있는데요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0277 바로 여러분들 자신입니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0278 이 세상에 똑같은 사람은 없어요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0280 같은 콘텐츠를 해도 전혀 달라집니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0281 여러분들 자신이 바로 최고의 콘텐츠고 최고의 개성입니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0282 그거를 모르시는 분들이 보통 유명한 방송을 따라 하려고 해요
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0285 그것이 아니라 그냥 내 말투 그냥 나의 모습
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0287 고민하지 마시고 그냥 해보신다면
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0288 정말 그런 나 자신을 좋아하는 사람들이
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0289 한 명 두 명 늘어나기 시작합니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0293 어 누가 댓글을 달아줬는데 나 때문에 막 눈물을 흘렸다네
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0294 감동을 먹었다네
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0297 더 능동적으로 내 삶이 바뀌어지기 시작합니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0298 어 그렇다면 이번에 사람들이 이걸 좋아했으니까
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0301 그것이 저는 유튜브가 가르쳐준 저의 삶이고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0302 1인 미디어가 가르쳐준 저의 삶의 자세입니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0307 하지만 지금은 세상이 완전히 바뀌었습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0313 거기에 여러분의 취미와 관심사가 있습니다
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0314 그게 누군가에게는 꾸깃꾸깃한 종잇조각이겠지만
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0315 여러분들에는 이게 콘텐츠가 되고
+- 64+E7ISc6rSA-s6gqhDRA-rQ-0320 지식을 나누고 성장합니다 경기도 지식캠퍼스

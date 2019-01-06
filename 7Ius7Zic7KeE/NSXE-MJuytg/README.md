@@ -1,0 +1,126 @@
+### Sebasi Open Corpus: 순례길 1,450km를 혼자 걷게 되면 깨닫게 되는 것 | 심혜진 배우 | 여행 동기부여 강의 강연 영상 듣기 | 세바시 843회
+
+- Speaker: 심혜진
+- Gender: 
+- Length: 7:30 in 113 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=NSXE-MJuytg] (https://www.youtube.com/watch?v=NSXE-MJuytg)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7Ius7Zic7KeE-NSXE-MJuytg-0002 네 안녕하세요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0003 안녕하세요 반갑습니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0006 30년 차가 거의 다 돼가는 배우 심혜진입니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0007 반갑습니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0008 네 근데 지난 몇 달 동안은 아주 초보 여행자로 살아봤어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0010 그리고 지난 9월에는 포르투갈 길 650km를 여행을 다녀왔습니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0011 사실 그 동안 나이 50이 넘어서
+- 7Ius7Zic7KeE-NSXE-MJuytg-0013 정말 과감하게 도전을 못 해봤고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0014 집 밖에 혼자 나간다는 것을 생각해보지도 못했어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0016 근데 이 나이가 되고 보니깐 꼭 한 번은 해보고 싶었어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0017 그래서 이번에 과감하게 도전을 해봤습니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0018 고맙습니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0020 한 달 전부터 짐을 싸기 시작했어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0022 근데 먼저 다녀오신 분들의 그 안내 가이드북 같은 거를 지침서로 해서
+- 7Ius7Zic7KeE-NSXE-MJuytg-0025 사실 다 싸놓고도 요건 요만큼 더 필요할지도 몰라
+- 7Ius7Zic7KeE-NSXE-MJuytg-0026 또 이것도 더 필요할지 몰라
+- 7Ius7Zic7KeE-NSXE-MJuytg-0035 부피도 작고 그리고 무게도 상당히 가벼워 보이고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0036 근데 어떤 여행객이 제게 물어봐요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0037 어떻게 그렇게 무거운 거를 들고 걸을 수 있겠느냐고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0039 그 짐을 줄여 보겠다고 매일 풀었어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0044 그 무거운 가방을 들고 다녀 보니까 정말 무거워서 못 들고 다니겠더라고요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0045 그때부터 짐을 하나씩 버리기 시작했어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0046 근데 그때 제가 가진 생각은
+- 7Ius7Zic7KeE-NSXE-MJuytg-0047 그 가방 안에 있는 짐이 제가 산티아고까지 가져간 고민 같은 거예요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0048 그리고 그 무게가
+- 7Ius7Zic7KeE-NSXE-MJuytg-0049 제가 가지고 간 무게가 아닌가라는 생각을 잠시 했었습니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0050 그래서 아 이것들을 어떻게 바로 해결해야 되나
+- 7Ius7Zic7KeE-NSXE-MJuytg-0051 이렇게 생각하는 것보다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0052 조금 내려놓고 천천히 여유를 가지고 방법을 찾고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0053 그러다 보면 해답이 보이겠다 라고 생각을 하고 다시 걷기 시작했습니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0055 그렇게 열심히 걷다 보면 몸이 아파요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0058 한 일주일이나 열흘이 지나기 시작하면
+- 7Ius7Zic7KeE-NSXE-MJuytg-0060 그러면 어느 정도 걷는게 익숙해져요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0065 그 지루함을 조금은 이겨낼 수가 있었어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0068 시간을 배려해주는 사인이 생기더라구요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0069 아 내가 지금은 혼자 걷고 싶어 라고 생각이 들 땐
+- 7Ius7Zic7KeE-NSXE-MJuytg-0071 그리고 꽂으면 아 지금 너는 혼자 걷고 싶은 거지
+- 7Ius7Zic7KeE-NSXE-MJuytg-0072 너는 지금 혼자 생각할 시간이 필요한 거지
+- 7Ius7Zic7KeE-NSXE-MJuytg-0074 먼저 앞으로 가주고 아니면 혹은 뒤떨어져서 걸어주고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0076 그런 배려심을 갖게 되기 시작해요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0078 또 이렇게 걷다 보면 가끔은 한국 사람들도 만나기도 해요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0080 한국 사람인 거 같은데 서로 눈을 마주치면 눈을 피하고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0084 혹시 한국 사람이세요 라고 먼저 물어봐요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0085 그러면 그 때서야
+- 7Ius7Zic7KeE-NSXE-MJuytg-0086 아 한국에서 왔어요 어디에서 왔고요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0087 저는 어떻게 어떻게 길을 걸어가고 있고요 라고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0089 그런데 그 중에 어떤 친구 하나가 제 고등학교 후배 였더라고요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0090 한참 까마득한 후배였는데
+- 7Ius7Zic7KeE-NSXE-MJuytg-0091 그 후배가 나중에 그런 말을 하는 거예요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0092 제가 누군지를 알았다고 그런데 말을 못 걸었다고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0093 근데 그 이유는 자기가 들은 얘기로는 제가 같은 학교 출신이고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0094 아는 척을 하는 것을 좋아하지 않는다라고 얘기를 들었대요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0096 그래서 어 제가 생각할 때 나는 그래도 나름 제가 스스로 생각할 때는
+- 7Ius7Zic7KeE-NSXE-MJuytg-0098 아 남들이 나를 보는 시선이나 생각은 나와 굉장히 다르구나
+- 7Ius7Zic7KeE-NSXE-MJuytg-0100 그래서 내가 먼저 다가가서 이야기를 하는 것이
+- 7Ius7Zic7KeE-NSXE-MJuytg-0104 그 길에는 우리가 모르는 법칙들이 있더라고요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0106 서로를 도와주고 배려해주는 그런 법칙들이 형성되어 있더라고요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0110 그러면 제 뒤에 오던 사람이 그거를 주워서 저에게 찾아줘요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0113 제 뒤에 오는 사람들 제 앞에 가는 사람들이
+- 7Ius7Zic7KeE-NSXE-MJuytg-0114 다 서로 말은 안 하고 있었지만
+- 7Ius7Zic7KeE-NSXE-MJuytg-0115 길동무라고 서로 인식하고 있었던 거예요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0119 근데 그 순례자들이 가는 숙소가 알베르게라고 하는데
+- 7Ius7Zic7KeE-NSXE-MJuytg-0120 그 알베르게에 항상 갈 때마다 매일 만나는 사람들이 있었어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0121 독일인들이었는데
+- 7Ius7Zic7KeE-NSXE-MJuytg-0122 그 독일인들은 제가 보는 관점에서 별로 예의가 없었던 거예요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0127 근데 더 싫었던 거는 어느 날 저희가 밥을 먹고 있었는데
+- 7Ius7Zic7KeE-NSXE-MJuytg-0129 그 무리들이 한 사람이 와서 자기들이 지금 저녁 식사 준비가 다 되어있고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0130 인원이 많으니 자리를 좀 비켜달라 하더라고요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0132 다 먹고 난 다음에 너희가 오면 되지 않겠니 했더니
+- 7Ius7Zic7KeE-NSXE-MJuytg-0133 음식이 다 준비가 되어있어서 라고 하는 거예요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0134 그래서 같이 간 친구가 비켜주자 해서 비켜주고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0136 사실은 저들이 한국인들을 조금 험담하는 얘기를 들었대요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0137 근데 그 친구가 마침 독일에서 오래 살다 와서
+- 7Ius7Zic7KeE-NSXE-MJuytg-0138 독일어를 잘 알아들었기 때문에 그 소리를 들을 수 있었던 거예요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0139 근데 그 소리를 듣고 나니깐 더 유쾌하지 않은 감정이 생겼어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0140 그런데 참 이상하죠
+- 7Ius7Zic7KeE-NSXE-MJuytg-0144 근데 그 마주치면서 저희를 보고 함박웃음을 웃고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0148 근데 그게 뭘까 생각해봤더니
+- 7Ius7Zic7KeE-NSXE-MJuytg-0149 우리가 서로 다른 문화에서 다른 언어로 생활을 했잖아요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0151 그런데 어쩌면 그 사람들하고 우리는 말이 안 통해서 생긴 오해일수도 있겠다라는
+- 7Ius7Zic7KeE-NSXE-MJuytg-0152 생각을 잠깐 했었어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0154 뭐 따뜻한 미소나
+- 7Ius7Zic7KeE-NSXE-MJuytg-0161 그 빈대 아시죠
+- 7Ius7Zic7KeE-NSXE-MJuytg-0166 모두 소독하지 않으면 버려야 했었거든요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0167 근데 그때 마침 그
+- 7Ius7Zic7KeE-NSXE-MJuytg-0168 순례자 길을 걷던 분 중에 한 분이
+- 7Ius7Zic7KeE-NSXE-MJuytg-0171 다 예약을 해서 가지고 다녔던 분이 계셨어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0172 근데 그분이 기꺼이 그것을 저희한테 나눠주고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0173 혹시 너희가 언어가 잘 통하지 않을 수가 있으니
+- 7Ius7Zic7KeE-NSXE-MJuytg-0176 다른 숙소를 또 예약까지 해주는 호의를 베풀어 주셨어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0179 정말 큰 힘이 됐죠
+- 7Ius7Zic7KeE-NSXE-MJuytg-0181 그렇게 대가 없이 누군가에게 호의를 베푸는 것이
+- 7Ius7Zic7KeE-NSXE-MJuytg-0184 더 좋은 결과가 생길 수도 있겠다 생각했습니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0186 뭐니 뭐니 해도 이렇게 그 길을 걷는 큰 이유 중에 하나는
+- 7Ius7Zic7KeE-NSXE-MJuytg-0187 생각을 정리할 수 있어서인 것 같아요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0202 돌아보고 하는 순간부터 그 문제들을 하나씩 내려놓고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0203 해결할 수 있는 방법을 찾아가기 시작했습니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0204 그래서 그 행복의 중심 그 문제를 해결하는 모든 중심에는
+- 7Ius7Zic7KeE-NSXE-MJuytg-0205 내가 있고 그래서 더 행복해질 수 있다는 사실도 알게 됐어요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0206 그렇게 되면서 그렇게 조금씩 깨달아지는 것들이
+- 7Ius7Zic7KeE-NSXE-MJuytg-0207 있으니깐 아 내가 이 길을 걷는 것이
+- 7Ius7Zic7KeE-NSXE-MJuytg-0209 정말 그 풍경이 아름답다는 생각도 들기 시작했고
+- 7Ius7Zic7KeE-NSXE-MJuytg-0210 이게 그런 깨달음들이 조금씩 있어지니깐
+- 7Ius7Zic7KeE-NSXE-MJuytg-0212 그게 아니라
+- 7Ius7Zic7KeE-NSXE-MJuytg-0213 그 길을 같이 걸으면서
+- 7Ius7Zic7KeE-NSXE-MJuytg-0218 근데 저는 조금 배운 거 조금 달라진 거를 굳이 말씀드리면
+- 7Ius7Zic7KeE-NSXE-MJuytg-0219 제가 이전보다 아주 조금 더 친절해졌다고 말씀드릴 수 있을 거 같아요
+- 7Ius7Zic7KeE-NSXE-MJuytg-0223 늘 기도할 때는 제 자신과 제 자신의 일 그리고 가족
+- 7Ius7Zic7KeE-NSXE-MJuytg-0226 아 내가 어느 날 기도를 하면서
+- 7Ius7Zic7KeE-NSXE-MJuytg-0227 누군가를 위해서 기도를 하는 게 달라졌어
+- 7Ius7Zic7KeE-NSXE-MJuytg-0230 그래서 저는 또한 기회가 주어진다면
+- 7Ius7Zic7KeE-NSXE-MJuytg-0234 제 인생도 그만큼 더 행복해지리라고 믿기 때문입니다
+- 7Ius7Zic7KeE-NSXE-MJuytg-0235 고맙습니다

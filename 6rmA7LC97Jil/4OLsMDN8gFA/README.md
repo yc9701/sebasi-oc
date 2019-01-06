@@ -1,0 +1,141 @@
+### Sebasi Open Corpus: (Kor, Eng) 세바시 69회 열정, 권태, 그리고 성숙 | 김창옥 서울여대 겸임교수
+
+- Speaker: 김창옥
+- Gender: 
+- Length: 7:24 in 128 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=4OLsMDN8gFA] (https://www.youtube.com/watch?v=4OLsMDN8gFA)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7LC97Jil-4OLsMDN8gFA-0001 감사합니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0002 사실 아까 이 사진 전의 사진 보셨죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0003 저도 없는 살쾡이 같은 사진을
+- 6rmA7LC97Jil-4OLsMDN8gFA-0004 우리 담당 PD님이 어렵게 구하셔서
+- 6rmA7LC97Jil-4OLsMDN8gFA-0005 저를 죽이시려는 그런
+- 6rmA7LC97Jil-4OLsMDN8gFA-0007 그래서 저희 학교에서는 강의를 30분 정도하고 질문을 받습니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0008 그러면 학생들이 바로 질문하는 문화가 아직 아니니까
+- 6rmA7LC97Jil-4OLsMDN8gFA-0009 문자를 합니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0014 사귀는 오빠가 군대에 갔어요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0015 기다려야 하나요 어떻게 해야 하나요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0016 오케이 질문 좋다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0018 그렇지만 좋아하지 않는다면 기다릴 필요없다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0021 아주 좋은 질문이다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0024 좋아한다는 것은 좋아한다고 생각하는 것을 위해서
+- 6rmA7LC97Jil-4OLsMDN8gFA-0026 근데 좋아 보이는 것은 뭐냐면
+- 6rmA7LC97Jil-4OLsMDN8gFA-0028 그건 좋아하는 게 아니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0029 그러니까 오빠가 군대 간 거는 너무 너무 좋은 찬스다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0030 우리 친구가 그 오빠를 좋아하는지 좋아 보였던 건지를 확인할 수 있는 기회다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0031 만약 우리 친구가 그 오빠를 진짜 좋아한다면
+- 6rmA7LC97Jil-4OLsMDN8gFA-0033 우리 친구는 그 오빠를 좋아하냐
+- 6rmA7LC97Jil-4OLsMDN8gFA-0034 그랬더니 문자가 다시 왔어요 아니요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0036 간단하거든요 인생이라는게
+- 6rmA7LC97Jil-4OLsMDN8gFA-0038 어떻게 해야할까요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0039 편지를 써라 A4 용지 깨끗한 거에
+- 6rmA7LC97Jil-4OLsMDN8gFA-0040 두 글자만 쓰면 괜찮다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0041 꺼져
+- 6rmA7LC97Jil-4OLsMDN8gFA-0045 그리고 일반 강의를 가서도 재미있어서 다시 부른다는 겁니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0046 벌써 세바시도 저 세 번째입니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0048 그래서 사람들이 궁금한지 저한테 물어봐요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0050 사는 것도 그렇게 즐거우세요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0052 날마다 이렇게 즐거운 사람들을 심리학에서는 광녀라고 부릅니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0055 머리에 꽃 꽂고 학교 다녀야 돼요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0056 인생은 3단계래요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0057 첫 번째 열정기
+- 6rmA7LC97Jil-4OLsMDN8gFA-0058 두 번째 권태기
+- 6rmA7LC97Jil-4OLsMDN8gFA-0059 세 번째가 성숙기랍니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0062 열정을 지나 권태를 지나 성숙기로 가는 소수의 사람들이 있답니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0065 집이 아무리 멀어도 바래다 주고 이러는 현상이죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0066 열정은 영원할까요 떨어질까요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0067 여러분의 경험대로 열정은 거의 다 대부분 떨어진대요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0068 종교에 대한 열정 공부에 대한 열정 회사에 대한 열정
+- 6rmA7LC97Jil-4OLsMDN8gFA-0069 세바시에 대한 열정도 떨어지고 말거야
+- 6rmA7LC97Jil-4OLsMDN8gFA-0074 근데 사람들은 열정기 때 하는 착각이 이 열정은 영원할거야 라고 생각하는 거죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0075 이 오빠가 나한테 영원히 잘해줄거야 그러니까 결혼해야지
+- 6rmA7LC97Jil-4OLsMDN8gFA-0078 거듭 말씀드리지만
+- 6rmA7LC97Jil-4OLsMDN8gFA-0081 권태라는 말의 의미가 뭐냐면
+- 6rmA7LC97Jil-4OLsMDN8gFA-0083 전엔 의미를 느꼈는데 지금은 가치가 없는 거죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0084 전에는 이 여자가 되게 의미있었어요 근데 이젠 별로 가치가 없어요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0086 그러면 사람은 권태기에 또 한번의 착각을 하는데
+- 6rmA7LC97Jil-4OLsMDN8gFA-0087 그 착각이 오늘 저희의 희망입니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0088 이 권태가 영원할 거야 라고 또 생각을 하기 시작한대요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0089 삶이 이렇게 재미없는 게 계속 영원할 거야
+- 6rmA7LC97Jil-4OLsMDN8gFA-0091 열정이 심했던 사람만 권태를 아주 심하게 앓는대요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0095 성과 못내는 사람은 뭐 부담 자체가 없어요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0096 아무도 기대하고 있지 않거든요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0098 공부도 잘하는 친구들이 공부에 대한 부담을 느껴요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0099 저는 그 특목고 나왔거든요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0102 요즘 학생들이 성적 비관해서 자살을 아주 많이 합니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0104 어차피 놓고 들어온 학교거든요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0107 그냥 마음 안 먹고 졸업하죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0110 외고에선 항상 1등이었어
+- 6rmA7LC97Jil-4OLsMDN8gFA-0113 이쁘다고 칭찬 받은 친구들이 학교 와서 외모에 대한 열등감을 알아요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0121 물을 얼마나 먹는진 모르겠어요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0122 한 10리터씩 먹어버리나 봐요 약수 같은 거 이런 걸로
+- 6rmA7LC97Jil-4OLsMDN8gFA-0123 엄청 살찌고 그러는거죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0124 당황스러운거죠 진짜 몸이 그린벨트로 묶여가지고 여기가
+- 6rmA7LC97Jil-4OLsMDN8gFA-0128 공부도 마찬가지고
+- 6rmA7LC97Jil-4OLsMDN8gFA-0129 그래서 이 권태기를 잘못 넘기면 성숙기로 못가고 무슨 기로 간다고요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0132 표정이 없어져요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0133 재미난데 웃지 않아요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0138 그런데 표정이 없어요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0139 웃지도 않고 울지도 않아요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0142 아주 심각한 상태 우울증 이라는 상태로 들어간대요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0144 돈이 있어도 돈이 없어도 인기가 있어도 인기가 없어도
+- 6rmA7LC97Jil-4OLsMDN8gFA-0146 인기 없으면 사람들이 나한테 관심을 안 주니까 두려운 거예요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0149 사람은 극단적 선택을 하기 시작하는 거죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0152 그리고 앞으로 살다가 우울한 날이 오면 도움이 될 지도 모르겠습니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0153 첫 번째 솔로몬과 다윗의 반지 안에 그 절대 힌트가 들어 있답니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0154 솔로몬과 다윗의 반지 안에는 뭐라고 써져 있었을까요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0156 이 또한 지나가리니
+- 6rmA7LC97Jil-4OLsMDN8gFA-0157 전에 어떤 백화점 직원 분들 상대로 뭐라고 써져 있냐고 물어봤더니
+- 6rmA7LC97Jil-4OLsMDN8gFA-0159 진짜 황당 하더라고요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0161 왕이 18K 합니까 여러분 돈 넘쳐나는데요 정말
+- 6rmA7LC97Jil-4OLsMDN8gFA-0162 이 또한 지나가리니
+- 6rmA7LC97Jil-4OLsMDN8gFA-0164 근데 사람이 힘든 시간이 지나가지 않고 아주 천천히 가는 때가 있는데 언제냐면요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0165 우리 여성분들 생각해 보세요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0166 옷을 완전 차려 입었어요 세바시 온다고요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0168 남자들 앞에서 자빠져 보세요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0170 매우 천천히 가고
+- 6rmA7LC97Jil-4OLsMDN8gFA-0171 놀라운 건 심하게 넘어졌는데 아프지 않아요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0172 인간은 쪽 팔리면 고통을 이겨내거든요 순간적이지만
+- 6rmA7LC97Jil-4OLsMDN8gFA-0173 그리고 아무 일이 없다는 듯이 벌떡 일어나죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0174 그리고 정말 자연스럽게 골목으로 들어가기 시작해요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0175 근데 소머즈처럼 사람들의 소리가 아주 크게 들려요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0177 그렇지만 전혀 안 듣는 것처럼 하고 들어가고
+- 6rmA7LC97Jil-4OLsMDN8gFA-0179 인간은 죽음에 준하는 감정들을 느끼고 그런 상황에 갈 때
+- 6rmA7LC97Jil-4OLsMDN8gFA-0182 그러니까요 남자는 군대 있을 때가 시간이 천천히 가는 겁니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0183 애써서 휴가 한 번 나왔는데 엄마는 왜 이렇게 자주 나오냐고 얘기하는 거죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0184 군대 있을 때는 자기는 여기가 즐겁지 않았기 때문에 시간이 매우 천천히 가는 거였거든요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0185 이것 또한 지나간답니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0186 요즘 혹시 힘든 일이 있으시면 마음에 한번 이렇게 새겨 보면 좋아요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0187 이 또한 지나가리니
+- 6rmA7LC97Jil-4OLsMDN8gFA-0188 사람이요 희망은 당장 먹고 힘을 내는 건 아니랍니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0190 세바시의 강의는 당장 먹고 힘을 내는 강의는 아니고요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0192 그래서 그 강의가 그 씨앗이 자기 마음에 탁 들어온 사람은
+- 6rmA7LC97Jil-4OLsMDN8gFA-0193 아주 힘든 시기를 넘기실 수도 있고 삶의 분수령을 맞이할 수도 있는 거죠
+- 6rmA7LC97Jil-4OLsMDN8gFA-0195 그리고 우리 학생들 같은 경우에는 좋은 거 먹어야 해요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0197 엄마가 요리를 아주 잘 하시는 것 같은데요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0198 어쨋든 아주 좋은 걸 먹어야 되는데
+- 6rmA7LC97Jil-4OLsMDN8gFA-0200 신약을 만들려면 최소한 걸리는 시간이 10년
+- 6rmA7LC97Jil-4OLsMDN8gFA-0201 최소 드는 비용이 1000억이랍니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0205 사람의 몸에서 음식으로 섭취가 안 되고 약으로도 아직 만들지 못한 게 있는데
+- 6rmA7LC97Jil-4OLsMDN8gFA-0207 엔돌핀의 4000배 효과라고 포털사이트에는 나와 있습니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0208 다이돌핀 무슨 돌핀이요 다이돌핀
+- 6rmA7LC97Jil-4OLsMDN8gFA-0209 다이돌핀은 정말 엄청난 효과를 갖고 있는데 언제 나오는지를 소개하고 마치려고요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0210 인간이 감동받거나 깨달을 때 다이돌핀이 나온답니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0212 성경에는 진리를 알지니 진리가 너희를 자유케 하리라 라는 말이 있고
+- 6rmA7LC97Jil-4OLsMDN8gFA-0213 그리고 불교에서는 늘 뭘 중요하게 생각합니까
+- 6rmA7LC97Jil-4OLsMDN8gFA-0214 깨달음입니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0215 인간이 깨닫고 감동받을때 다이돌핀이 나온대요
+- 6rmA7LC97Jil-4OLsMDN8gFA-0216 그래서 성직자가 제일 오래 살고
+- 6rmA7LC97Jil-4OLsMDN8gFA-0217 2위는 지휘자가 최고로 장수하는 직업이랍니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0219 여기는 인문학을 공부하는 데이기도 하지만
+- 6rmA7LC97Jil-4OLsMDN8gFA-0221 오래 살고 싶은 마음에 억지로 엄청 하시네요 이거를
+- 6rmA7LC97Jil-4OLsMDN8gFA-0224 그러니까 여러분 좋은 거 가까이 하십시오
+- 6rmA7LC97Jil-4OLsMDN8gFA-0226 아 라고 할 만한 강의 아 라고 할 만한 책 아 라고 할 만한 사람을 만나서
+- 6rmA7LC97Jil-4OLsMDN8gFA-0227 어우러져서 함께 놀다보면 저희의 인생도 열려서 끝날 것이라고 확신합니다
+- 6rmA7LC97Jil-4OLsMDN8gFA-0228 감사합니다

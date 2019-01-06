@@ -1,0 +1,127 @@
+### Sebasi Open Corpus: (Kor) 세바시 72회 세계를 정복하려면 지도를 사라 | 양희송 대표기획자
+
+- Speaker: 양희송
+- Gender: 
+- Length: 6:23 in 114 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=MbnY32-sKww] (https://www.youtube.com/watch?v=MbnY32-sKww)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7JaR7Z2s7Iah-MbnY32-sKww-0001 예 반갑습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0003 도대체 무슨 이야기를 할 건지 궁금하시죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0005 위대한 독재자 라는 영화의 한 장면입니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0006 세계를 정복하려는 독재자가 지금 자기 책상위에서
+- 7JaR7Z2s7Iah-MbnY32-sKww-0008 여러분이 007부터 시작을 해서 다양한 영화를 보시면
+- 7JaR7Z2s7Iah-MbnY32-sKww-0010 꼭 같이 나타나는 소품이 있죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0011 세계지도 입니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0012 보통 등 뒤에 벽에 걸려있거나
+- 7JaR7Z2s7Iah-MbnY32-sKww-0013 아니면 책상 위에 지구본으로 등장을 하죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0015 이유는 간단합니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0016 자기가 정복하려는 대상이
+- 7JaR7Z2s7Iah-MbnY32-sKww-0017 어떻게 생겼는지를 알아야 정복을 하겠죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0019 여러분 가운데도 세계를 정복하고자 하시는 분이 계시다면
+- 7JaR7Z2s7Iah-MbnY32-sKww-0020 제일 먼저 하실 일은 문구점에 가서 세계지도를 먼저 하나 구입하시는 일인데요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0021 물론 세계 지도를 구입한다고 다 정복할 수 있는 건 아니지만
+- 7JaR7Z2s7Iah-MbnY32-sKww-0023 하는 말씀을 드리고 싶습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0026 월드뷰라는 아주 단순한 단어의 조합이기 때문에
+- 7JaR7Z2s7Iah-MbnY32-sKww-0027 의미를 이해하시는 데는 전혀 어려움이 없을 겁니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0028 세상을 보는 관점 이런 뜻이죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0030 우리 한번 생각을 해볼텐데요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0031 자 이게 뭘까요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0032 제가 이 그림을 띄워놓고 질문을 던지면
+- 7JaR7Z2s7Iah-MbnY32-sKww-0033 중학생부터 어르신까지 다양한 청중들이 아주 다양한 대답을 합니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0036 이게 정육면체가 되려면 변의 길이가 같아야 되는데
+- 7JaR7Z2s7Iah-MbnY32-sKww-0037 이게 눈썰미만 가지고는 좀 자신이 없단 말이죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0038 약간 자신없이 직육면체인가 이렇게 갑니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0045 보기 때문에 속는 것들도 굉장히 많습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0047 중요한 것은 우리가 본다 하는 것에
+- 7JaR7Z2s7Iah-MbnY32-sKww-0048 종종 우리가 속기도 하고 착각하기도 하는 지점이 있다는
+- 7JaR7Z2s7Iah-MbnY32-sKww-0049 그 지점을 우리가 먼저 기억하고 들어갈 필요가 있습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0051 저는 3년 반 정도 영국에서 유학을 한 적이있습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0053 영국의 시골마을로 여행을 하게 돼서
+- 7JaR7Z2s7Iah-MbnY32-sKww-0065 아주 호기심과 궁금증를 자아내는 일이죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0066 제가 자신있게 영어로 질문을 던졌죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0070 그래 너가 한번 대답해봐라 했더니만
+- 7JaR7Z2s7Iah-MbnY32-sKww-0071 손을 번쩍 든 그 아이가 하는 말이
+- 7JaR7Z2s7Iah-MbnY32-sKww-0074 차이나나 재팬정도 나와주면
+- 7JaR7Z2s7Iah-MbnY32-sKww-0076 이렇게 풀어갈려고 한건데 바로 아프리카로 가는 바람에
+- 7JaR7Z2s7Iah-MbnY32-sKww-0081 얘들아 말이다 글쎄 이렇게 참 흥미로운 일이 있었단다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0082 하면서 얘기를 하는데 분위기가 이상한거예요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0083 사람들이 안 웃어요 뭔가가 지금 잘못되고 있다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0086 아시아의 인도 너머에 뭐가 있는지를 몰라요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0087 인도는 식민지를 했기 때문에 굉장히 잘 압니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0088 그 너머에 뭐가 있는지를 몰라요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0090 근데 정확하게 지도에서 집지를 못해요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0091 그건 마치 우리나라 사람들이
+- 7JaR7Z2s7Iah-MbnY32-sKww-0094 근데 그 사실에 제가 충격을 받고 학교로 돌아와서
+- 7JaR7Z2s7Iah-MbnY32-sKww-0097 제 순서가 왔을 때 예배 때려치고
+- 7JaR7Z2s7Iah-MbnY32-sKww-0098 학생들에게 지리공부를 시켜야 되겠다고 생각을 했습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0101 얘들아 이게 도대체 뭐냐 그랬더니만
+- 7JaR7Z2s7Iah-MbnY32-sKww-0104 그래 이거 월드맵 맞지 그런데
+- 7JaR7Z2s7Iah-MbnY32-sKww-0105 나는 내 나라에서 크면서 좀 다른 세계지도를 봤다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0106 하고 이걸 보여줬어요 감이 오시나요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0107 영국학생들도 내가 무슨 이야기를 하고 싶어 하는지를
+- 7JaR7Z2s7Iah-MbnY32-sKww-0113 근데 서양은 거의 다 첫 번째 지도를 봅니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0114 이 지도를 보면 세계의 중심이 어디에 있는지 금방 보입니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0116 동양과 서양을 나누는 가운데 선이 어디를 지나죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0117 영국 그리니치 천문대 왜 거기를 지날까요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0118 아무 이유 없어요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0125 동쪽으로 중간쯤 가면 뭐라고 부를까요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0129 슈렉 1편에 제일 먼저 등장하는 이야기가
+- 7JaR7Z2s7Iah-MbnY32-sKww-0131 우리말 번역 겁나 먼 왕국 이렇게 돼있습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0132 영국 사람들의 입장에서 저는 어디서 온 사람이다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0135 미지의 친구인 거죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0139 가장 선명하고 적나라하게 구현되어 있는 장이다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0144 우리는 서양사람들의
+- 7JaR7Z2s7Iah-MbnY32-sKww-0147 우리가 얼마나 비주류고 변방에 있는 존재인지를
+- 7JaR7Z2s7Iah-MbnY32-sKww-0148 금방 눈치챌 수 있습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0149 그런 세계속에서 살아갈 때 가만히 있었는데 저절로
+- 7JaR7Z2s7Iah-MbnY32-sKww-0150 우리가 변방의 주변인으로서 자리매김이 되었을 때
+- 7JaR7Z2s7Iah-MbnY32-sKww-0151 우리는 어떻게 살아가야 될 것인가
+- 7JaR7Z2s7Iah-MbnY32-sKww-0152 세계지도 이야기가 곧 우리의 인생관의 문제
+- 7JaR7Z2s7Iah-MbnY32-sKww-0157 순응이라고 이름을 붙여봤어요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0162 약간 자존심의 상처를 입고 뭔가 좀 비굴한 느낌이 들지만
+- 7JaR7Z2s7Iah-MbnY32-sKww-0163 인정하면 우리 인생의 상당히 많은 부분들이 편안해 집니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0164 불필요한 경쟁에 뛰어들지 않아도 돼요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0165 그럼 나는 C급인데 3류 인생인데
+- 7JaR7Z2s7Iah-MbnY32-sKww-0166 뭐 그렇게 내가 크게 부담갖고 살건가 마음이 편안해 집니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0169 학벌좋은 학교 갈려고 노력 굳이 안해도
+- 7JaR7Z2s7Iah-MbnY32-sKww-0170 그냥 주어진 조건 받아들이고 살면 됩니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0172 또 실제로 많이 하는 선택이라고 생각합니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0173 두 번째 가능성이 있습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0179 뭐 영어잘하는 거야 그럼 영어 열심히 하는 거예요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0180 돈 많이 버는 거야 그럼 글로벌기업 만드는 거죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0184 그런데 저는 이 모델을 편승이라고 이름을 붙였습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0185 이유는 딱 한 가지 입니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0186 이 모델 다 좋은데 지배적 질서가 정당한지에 대해서
+- 7JaR7Z2s7Iah-MbnY32-sKww-0191 그래서 이 편승모델은
+- 7JaR7Z2s7Iah-MbnY32-sKww-0196 루저에게 야유를 보내는 것을
+- 7JaR7Z2s7Iah-MbnY32-sKww-0197 아주 당연하다고 생각을 하고 살아갑니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0198 그래서 저는 이 모델을
+- 7JaR7Z2s7Iah-MbnY32-sKww-0199 편승모델이라고 이름을 붙여봤습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0200 이 두 가지 굉장히 익숙한 모델인데요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0201 세 번째 가능성이 과연 있겠는가
+- 7JaR7Z2s7Iah-MbnY32-sKww-0202 저는 저항이라고 이름을 붙여 봤습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0204 나는 다른 지도 보고 산다고 우기는 겁니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0206 근데 나는 그 지도 안 볼래
+- 7JaR7Z2s7Iah-MbnY32-sKww-0208 그럼 그렇게 살면 되는데 뭐가 문제인가
+- 7JaR7Z2s7Iah-MbnY32-sKww-0212 너는 자꾸 그걸 보겠다고 우기냐
+- 7JaR7Z2s7Iah-MbnY32-sKww-0213 불편하다 어색하다 당혹스럽다 민폐를 끼친다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0214 압박을 가하는 거죠
+- 7JaR7Z2s7Iah-MbnY32-sKww-0215 모든 대안적인 가치관을 갖고 살아갈려는 사람들은
+- 7JaR7Z2s7Iah-MbnY32-sKww-0220 이 지도를 처음 그렸던 스튜어드 맥아더라는 사람이
+- 7JaR7Z2s7Iah-MbnY32-sKww-0227 호주를 이웃 북반구 국가들 위로 우뚝 솟아서
+- 7JaR7Z2s7Iah-MbnY32-sKww-0235 빠뜨리고 있다는 느낌 안드세요
+- 7JaR7Z2s7Iah-MbnY32-sKww-0242 세상을 살아갈려는 사람들은 누구나 동일한 지점에서
+- 7JaR7Z2s7Iah-MbnY32-sKww-0243 좌절감과 싸워야 됩니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0247 그것이 옳다고 믿는 그 믿음이 쉽사리 흔들리지 않고
+- 7JaR7Z2s7Iah-MbnY32-sKww-0248 많은 수의 사람들의 위협 앞에 쉽게 굴복하지 않고
+- 7JaR7Z2s7Iah-MbnY32-sKww-0249 끝까지 용기를 지켜내는 것
+- 7JaR7Z2s7Iah-MbnY32-sKww-0250 남과 다른 세계관를 갖고 살아간다는 것은
+- 7JaR7Z2s7Iah-MbnY32-sKww-0251 머리의 문제가 아니라 가슴의 문제입니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0252 여러분 모두가 용기있는 인생을 선택하셨으면 좋겠습니다
+- 7JaR7Z2s7Iah-MbnY32-sKww-0253 감사합니다

@@ -1,0 +1,150 @@
+### Sebasi Open Corpus: (Kor, Eng) 세바시 603회 당신도 결국 알게 될 겁니다 | 김창옥 김창옥휴먼컴퍼니 대표
+
+- Speaker: 김창옥
+- Gender: 
+- Length: 7:33 in 137 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=myQeHo6IRv8] (https://www.youtube.com/watch?v=myQeHo6IRv8)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7LC97Jil-myQeHo6IRv8-0004 뉴욕의 좋은 동네는 뭐죠 이름이
+- 6rmA7LC97Jil-myQeHo6IRv8-0007 여기 이 동네가 좋은 동네인가요
+- 6rmA7LC97Jil-myQeHo6IRv8-0008 아 그래요
+- 6rmA7LC97Jil-myQeHo6IRv8-0010 오 마이 갓
+- 6rmA7LC97Jil-myQeHo6IRv8-0012 한국의 전형적인 부촌은 강남인 줄 알지만
+- 6rmA7LC97Jil-myQeHo6IRv8-0013 사실은 강북에 대표적인 동네가 있습니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0014 한남동 성북동
+- 6rmA7LC97Jil-myQeHo6IRv8-0016 그 동네에서는 전화 받을 때 여보세요라고 받지 않습니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0017 이렇게 받죠 평창동 입니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0018 매우 잘 산다는 뜻이죠
+- 6rmA7LC97Jil-myQeHo6IRv8-0019 그런데 사람들은 사실 잘 산다 와 부자를 혼동하는 게 있대요
+- 6rmA7LC97Jil-myQeHo6IRv8-0020 잘 산다는 말은 정확하게 얘기하면
+- 6rmA7LC97Jil-myQeHo6IRv8-0021 관계가 좋다라는 뜻이래요 잘 산다
+- 6rmA7LC97Jil-myQeHo6IRv8-0022 그러면은 부자의 뜻은 뭐냐
+- 6rmA7LC97Jil-myQeHo6IRv8-0023 부자의 정확한 뜻은 돈이 많다는 뜻입니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0024 그러니까 돈이 많으면서 잘 사는 사람이 있고
+- 6rmA7LC97Jil-myQeHo6IRv8-0025 돈은 많지만 부자이지만 잘 살지 못하는 경우도 있고
+- 6rmA7LC97Jil-myQeHo6IRv8-0026 또 부자이면서 잘 사는 분도 있고
+- 6rmA7LC97Jil-myQeHo6IRv8-0027 잘 살지도 못하고 돈도 없는
+- 6rmA7LC97Jil-myQeHo6IRv8-0029 돈도 없고 사이도 안 좋고
+- 6rmA7LC97Jil-myQeHo6IRv8-0034 강의를 맞춤형으로 하고 싶어요 자 손 한번 들어주십시오
+- 6rmA7LC97Jil-myQeHo6IRv8-0036 어려운 사정이 있을 수 있다고 생각하고요
+- 6rmA7LC97Jil-myQeHo6IRv8-0038 나는 지금 결혼하고 5년 10년 20년 30년이 지났지만
+- 6rmA7LC97Jil-myQeHo6IRv8-0039 아직도 내 남편에게 여성으로서 사랑을 받는다는 분 손 한번 들어주세요
+- 6rmA7LC97Jil-myQeHo6IRv8-0042 놀라운 건 얼굴로써는 받기가 쉽지 않을 것 같은데
+- 6rmA7LC97Jil-myQeHo6IRv8-0043 카메라 다시 한번 잡아주시고요
+- 6rmA7LC97Jil-myQeHo6IRv8-0046 뭘로 받을까요 뭐 있겠죠
+- 6rmA7LC97Jil-myQeHo6IRv8-0047 한국에서 저는 기업에 강의를 가서 항상 이 질문을 드립니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0048 여성분들 강의를 전 주로 많이 하니까
+- 6rmA7LC97Jil-myQeHo6IRv8-0058 우리는 좀 더 넓은 세상을 살고 싶은 마음에 미국으로 왔습니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0059 여러가지 이유가 있겠지만
+- 6rmA7LC97Jil-myQeHo6IRv8-0061 넓은 세상을 살려고 여기 왔는데
+- 6rmA7LC97Jil-myQeHo6IRv8-0063 그리고 그 가장 큰 이유는
+- 6rmA7LC97Jil-myQeHo6IRv8-0064 언어를 자유자재로 구사할 수 없기 때문이라는 것도 알게 되었어요
+- 6rmA7LC97Jil-myQeHo6IRv8-0066 그리고 모든 간판이 두려움의 대상이에요
+- 6rmA7LC97Jil-myQeHo6IRv8-0067 그럼 미국 사람 만나도 두렵죠
+- 6rmA7LC97Jil-myQeHo6IRv8-0073 그런데 이 남자여자의 언어 인간의 언어 미국 사람의 언어
+- 6rmA7LC97Jil-myQeHo6IRv8-0074 즉 영어 말고 이들의 문화적 언어가 있습니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0075 근데 우리가 그걸 안다면 우리는 상당히 넓은 세상을 살 수 있고
+- 6rmA7LC97Jil-myQeHo6IRv8-0076 우리는 그들에게 정말로
+- 6rmA7LC97Jil-myQeHo6IRv8-0078 그러면 남자의 언어가 과연 무엇일까 봤더니요
+- 6rmA7LC97Jil-myQeHo6IRv8-0079 우리 여성분들께 소개할게요
+- 6rmA7LC97Jil-myQeHo6IRv8-0080 지금 남편들하고 계속 사실거죠
+- 6rmA7LC97Jil-myQeHo6IRv8-0081 물론 체인지 될 수 있다고 생각합니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0085 남자는요 똑같은 말이어도 명령조로 하면 저항한대요
+- 6rmA7LC97Jil-myQeHo6IRv8-0086 그리고 말을 명령처럼 하는 와이프 하고는
+- 6rmA7LC97Jil-myQeHo6IRv8-0087 육체적 정신적인 관계를 맺고 싶지 않대요
+- 6rmA7LC97Jil-myQeHo6IRv8-0089 10시까지 들어와 10시까지 들어오라고
+- 6rmA7LC97Jil-myQeHo6IRv8-0090 차라리 귀신을 속여 어디서 나를 속이려고 하고 있어
+- 6rmA7LC97Jil-myQeHo6IRv8-0092 또 때가 되면 이 귀신이 나가고 또 때가 되면 귀신이 들어오고
+- 6rmA7LC97Jil-myQeHo6IRv8-0093 근데 부탁하거나 제안하면
+- 6rmA7LC97Jil-myQeHo6IRv8-0096 살짝 웃으시면서 말하잖아요
+- 6rmA7LC97Jil-myQeHo6IRv8-0097 남자는요 상당히 유연한 느낌을 갖습니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0099 여보 한 달에 한두번은 집에 들어와요 호호
+- 6rmA7LC97Jil-myQeHo6IRv8-0105 이 남녀의 사이도 제가 보니깐 처음엔 얼굴하고 몸매가 매우 중요하지만
+- 6rmA7LC97Jil-myQeHo6IRv8-0108 말을 되게 예쁘게 하시더라고요
+- 6rmA7LC97Jil-myQeHo6IRv8-0109 뭘 예쁘게 한다고요 말
+- 6rmA7LC97Jil-myQeHo6IRv8-0110 남자는요 자기가 와이프한테 뭘 제안했어요 여성한테 뭘 제안했는데
+- 6rmA7LC97Jil-myQeHo6IRv8-0111 여자가 거절할 수 있어요 상황이 안되서
+- 6rmA7LC97Jil-myQeHo6IRv8-0112 근데 그래도 살짝 웃으면서 말하면 충격을 별로 안 받는대요
+- 6rmA7LC97Jil-myQeHo6IRv8-0114 우리는 이거 훈련 받은 적이 없기 때문에
+- 6rmA7LC97Jil-myQeHo6IRv8-0117 근데 미국 사람들은 보면 이런 거 되게 잘 쓰잖아요
+- 6rmA7LC97Jil-myQeHo6IRv8-0119 살짝 웃으면서 이렇게 한번 얘기 해 보세요
+- 6rmA7LC97Jil-myQeHo6IRv8-0120 남편이 뭐라고 한다고요 여보 오늘 저녁에 매운탕 먹을까
+- 6rmA7LC97Jil-myQeHo6IRv8-0121 그럼 살짝 웃으면서 이렇게 해주세요 당신이 좋아하면 먹지 뭐
+- 6rmA7LC97Jil-myQeHo6IRv8-0123 남편이 여러분을 사랑할 확률이 매우 높아져요
+- 6rmA7LC97Jil-myQeHo6IRv8-0124 자 나는 내 남편이 무언가를 제안할 때
+- 6rmA7LC97Jil-myQeHo6IRv8-0126 살짝 손 한번 들어보세요 여성분 중에
+- 6rmA7LC97Jil-myQeHo6IRv8-0127 계시네요
+- 6rmA7LC97Jil-myQeHo6IRv8-0128 제가 여성분께 여쭤볼게요
+- 6rmA7LC97Jil-myQeHo6IRv8-0129 남편이 여보 매운탕 먹을까 그러면 선생님 뭐라고 얘기하세요
+- 6rmA7LC97Jil-myQeHo6IRv8-0133 자기가 좋아하면 먹지 뭐
+- 6rmA7LC97Jil-myQeHo6IRv8-0135 이기주의자 같으니라고 저런
+- 6rmA7LC97Jil-myQeHo6IRv8-0137 힘든 이민 사회에서 말이야 쯧
+- 6rmA7LC97Jil-myQeHo6IRv8-0142 밖에서 다른 자매님들하고 먹고 와야 되겠구나
+- 6rmA7LC97Jil-myQeHo6IRv8-0143 이러고는 언어가 소통이 되지 않으면서 관계는 악화가 되는 거죠
+- 6rmA7LC97Jil-myQeHo6IRv8-0144 언어 저는 지금 계속 인간의 언어를 소개하는데요
+- 6rmA7LC97Jil-myQeHo6IRv8-0145 사실은 제가 언어의 핵심적 요소 중에 되게 큰 무기가 뭔지 발견했는데요
+- 6rmA7LC97Jil-myQeHo6IRv8-0147 유머있는 분들은요 사업하는데도 상당히 좋은 무기를 갖고 있는 것 같아요
+- 6rmA7LC97Jil-myQeHo6IRv8-0148 여성들은 똑같은 조건이면 유머있는 남자를 좋아해요 맞죠
+- 6rmA7LC97Jil-myQeHo6IRv8-0149 미국분들도 좀 그래요 유머있는 남자들이 좀 인기가 있나요
+- 6rmA7LC97Jil-myQeHo6IRv8-0151 예쁘죠 나이는요 어리죠
+- 6rmA7LC97Jil-myQeHo6IRv8-0152 여러분 남편은 유머가 있나요 없나요
+- 6rmA7LC97Jil-myQeHo6IRv8-0153 없죠
+- 6rmA7LC97Jil-myQeHo6IRv8-0157 그런데 유머가 있으면 분명히 강연하기에도 되게 좋은 게 사실이에요
+- 6rmA7LC97Jil-myQeHo6IRv8-0159 유머의 언어를 알면 사람들하고 잘 지내는 데 큰 도움을 받는데
+- 6rmA7LC97Jil-myQeHo6IRv8-0162 저는 유머를 따로 배운 적이 없거든요
+- 6rmA7LC97Jil-myQeHo6IRv8-0163 근데 저희 엄마가 좀 유머가 있으시더라고요
+- 6rmA7LC97Jil-myQeHo6IRv8-0164 그 유머를 받고 제가
+- 6rmA7LC97Jil-myQeHo6IRv8-0165 제가 질문을 받고 알게 된 건데요
+- 6rmA7LC97Jil-myQeHo6IRv8-0167 좀 힘들게 사셨어요
+- 6rmA7LC97Jil-myQeHo6IRv8-0169 어머니의 소원은 통일 아니고 이혼이에요
+- 6rmA7LC97Jil-myQeHo6IRv8-0170 어머니는 그렇게 통일을 원하지 않구요 그냥
+- 6rmA7LC97Jil-myQeHo6IRv8-0175 그러면 드라마에 나오는 서울 엄마는 이렇게 말을 하죠
+- 6rmA7LC97Jil-myQeHo6IRv8-0176 엄마 나 홍삼 좀 보냈어 아버지랑 드셔
+- 6rmA7LC97Jil-myQeHo6IRv8-0178 뭐하러 그런 걸 보내니 너나 먹으렴
+- 6rmA7LC97Jil-myQeHo6IRv8-0180 창옥아 보내지마
+- 6rmA7LC97Jil-myQeHo6IRv8-0189 둘 째는 아들 쌍둥이에요
+- 6rmA7LC97Jil-myQeHo6IRv8-0194 그런데 딸이 처음에는 자기 혼자 있을 때는 공주이고 왕이었어요
+- 6rmA7LC97Jil-myQeHo6IRv8-0196 그러면 이 첫째 애들이 겪는 심리를 학자들은 보위를 빼앗긴 왕의 슬픔이라고 해요
+- 6rmA7LC97Jil-myQeHo6IRv8-0197 여러분 아마 이민 오신 분이 그런 걸 경험 하셨을지도 몰라요
+- 6rmA7LC97Jil-myQeHo6IRv8-0200 그러니까 내 자존심이 되게 상하는 일이 많아져요
+- 6rmA7LC97Jil-myQeHo6IRv8-0201 그러다보면 나 그래도 내 나라에선 왕이었는데
+- 6rmA7LC97Jil-myQeHo6IRv8-0202 내 나라에선 내 나름 그러고 살았는데 여기 오니까 힘든 거예요
+- 6rmA7LC97Jil-myQeHo6IRv8-0203 그러니까 딸이 이상 행동을 하기 시작하는 거예요
+- 6rmA7LC97Jil-myQeHo6IRv8-0206 근데 뭔가 마음이 되게 그런 거예요
+- 6rmA7LC97Jil-myQeHo6IRv8-0210 아빠 나 2층 교실로 올라갈 때 바로 가지 말고 거기서 손 들고 있어
+- 6rmA7LC97Jil-myQeHo6IRv8-0212 아마 여러분이 아이들을 여기서 낳거나 데려와서
+- 6rmA7LC97Jil-myQeHo6IRv8-0213 미국 학교에 적응이 안 되는데 엄마가 데려다 주고 갈 때
+- 6rmA7LC97Jil-myQeHo6IRv8-0214 그런 느낌이 훨씬 많이 나올 지도 몰라요
+- 6rmA7LC97Jil-myQeHo6IRv8-0217 다른 집은 이러지 않거든요 그냥 얼른 얼른 가는데
+- 6rmA7LC97Jil-myQeHo6IRv8-0218 저희집만 아침마다 그러니까 선생님이 매우 짜증나지만 친절한 목소리로
+- 6rmA7LC97Jil-myQeHo6IRv8-0219 아버님 들어가시기 바랍니다 아버님 아버님
+- 6rmA7LC97Jil-myQeHo6IRv8-0224 그 순간 뭔가 마음에
+- 6rmA7LC97Jil-myQeHo6IRv8-0225 아무리 강의를 잘하고 아무리 연기를 잘해도
+- 6rmA7LC97Jil-myQeHo6IRv8-0226 부모가 아니면 알 수 없는 아주 묘한 느낌이 생기더라고요
+- 6rmA7LC97Jil-myQeHo6IRv8-0227 애처롭기도 하고
+- 6rmA7LC97Jil-myQeHo6IRv8-0228 여러분이 미국 학교에 아이를 보내면서 내 아이가 잘 적응할 수 있을까
+- 6rmA7LC97Jil-myQeHo6IRv8-0230 뭐 그런 마음이기도 하고
+- 6rmA7LC97Jil-myQeHo6IRv8-0232 그때 저희 어머니가 저에게 하셨던 이야기가 생각이 나는 거예요
+- 6rmA7LC97Jil-myQeHo6IRv8-0233 이렇게 말씀하셨거든요
+- 6rmA7LC97Jil-myQeHo6IRv8-0235 엄마도 너 그렇게 키웠어 잉
+- 6rmA7LC97Jil-myQeHo6IRv8-0236 아 근데 갑자기 그 얘기가 생각이 나면서 눈물이 나는 거예요
+- 6rmA7LC97Jil-myQeHo6IRv8-0237 아 우리 엄마가 나를 이렇게 봤겠구나
+- 6rmA7LC97Jil-myQeHo6IRv8-0238 40년이 넘게
+- 6rmA7LC97Jil-myQeHo6IRv8-0240 내가 그런 존재라는 걸
+- 6rmA7LC97Jil-myQeHo6IRv8-0243 그리고는 부모와 자식의 사이를 어떻게 가꿔가야 될 지를
+- 6rmA7LC97Jil-myQeHo6IRv8-0245 들어보셨을 거예요
+- 6rmA7LC97Jil-myQeHo6IRv8-0247 아 엄마에게 계좌를 이체해야 되겠구나
+- 6rmA7LC97Jil-myQeHo6IRv8-0248 나를 이렇게 키우신 엄마에게 계좌를 이체해야 되겠구나
+- 6rmA7LC97Jil-myQeHo6IRv8-0249 여러분 미국에 오셔서 사는 게 결코 만만치 않을 거라고 생각합니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0251 그런데 꼭 저희가 이민 생활을 하면서 잊지 않았으면 좋을 거 딱 하나가 있다면
+- 6rmA7LC97Jil-myQeHo6IRv8-0252 제가 제 딸을 그렇게 보듯 저희 엄마가 저를 그렇게 보셨듯
+- 6rmA7LC97Jil-myQeHo6IRv8-0254 꼭 말씀드리고 싶습니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0255 건강하세요 고맙습니다
+- 6rmA7LC97Jil-myQeHo6IRv8-0258 왜냐하면 이분들과 잘 어울려서 사이가 좋은 것이
+- 6rmA7LC97Jil-myQeHo6IRv8-0259 우리나라 이미지를 가장 좋게 하는 것이기 때문입니다

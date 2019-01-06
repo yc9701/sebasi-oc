@@ -1,0 +1,191 @@
+### Sebasi Open Corpus: 월요병이 없는 회사의 비밀 | 김봉진 우아한형제들 대표 | 세바시 433회
+
+- Speaker: 김봉진
+- Gender: 
+- Length: 11:5 in 178 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=pcbyke6A35o] (https://www.youtube.com/watch?v=pcbyke6A35o)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA67SJ7KeE-pcbyke6A35o-0001 네 안녕하세요 반갑습니다
+- 6rmA67SJ7KeE-pcbyke6A35o-0006 그 동안 해왔던 회사를 만들었던 이야기들 좀 해드리려고 합니다
+- 6rmA67SJ7KeE-pcbyke6A35o-0007 좀 바보 같은 질문 드릴게요 여러분
+- 6rmA67SJ7KeE-pcbyke6A35o-0008 좋은 회사 다니고 싶으세요 나쁜 회사 다니고 싶으세요
+- 6rmA67SJ7KeE-pcbyke6A35o-0009 그렇죠 너무 뻔하죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0010 여기서 난 정말 다음에 회사 갈 때 꼭 나쁜 회사 갈 거야 이런 생각 하시는 분 없잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0011 그러면 회사를 만드시는 분들 창업자들도
+- 6rmA67SJ7KeE-pcbyke6A35o-0013 너무 당연하잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0015 이런 생각을 가지고 창업하시는 분들은 없을꺼예요
+- 6rmA67SJ7KeE-pcbyke6A35o-0016 저도 비슷한 생각이에요
+- 6rmA67SJ7KeE-pcbyke6A35o-0017 여러분들처럼 모두가 같은 생각인 것처럼
+- 6rmA67SJ7KeE-pcbyke6A35o-0018 이왕 회사를 만들었는데 이 회사가 좀 좋은 회사가 됐으면 좋겠다 이런 생각을 했어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0020 좋다라는 건 좀 철학적인 질문이기도 하잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0022 저는 답을 잘 모르겠더라고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0023 그래서 이제 인터뷰를 볼 때마다 면접을 볼 때마다 구성원들한테 질문을 드려요
+- 6rmA67SJ7KeE-pcbyke6A35o-0024 마지막에 항상 질문을 드리는데
+- 6rmA67SJ7KeE-pcbyke6A35o-0025 좋은 회사란 어떤 회사인 것 같아요 라고 질문을 드려요
+- 6rmA67SJ7KeE-pcbyke6A35o-0026 그러면 각자 자기가 가지고 있는 생각에 좋은 회사란 어떤 회사인지 늘 말씀해주시는데
+- 6rmA67SJ7KeE-pcbyke6A35o-0027 여기 보시면 제 다이어리에 막 적어놓은 거예요
+- 6rmA67SJ7KeE-pcbyke6A35o-0030 본인이 즐겁게 일하는 회사
+- 6rmA67SJ7KeE-pcbyke6A35o-0031 소통이 잘 되는 회사
+- 6rmA67SJ7KeE-pcbyke6A35o-0032 야근도 즐거운 회사
+- 6rmA67SJ7KeE-pcbyke6A35o-0035 이런 회사들이 많아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0036 주말에도 회사가 생각나고
+- 6rmA67SJ7KeE-pcbyke6A35o-0037 월요일날 아침에 회사가 가고 싶은 회사
+- 6rmA67SJ7KeE-pcbyke6A35o-0041 일단 회사와 내가 같이 성장하는 느낌이 드는 회사였음 좋겠다
+- 6rmA67SJ7KeE-pcbyke6A35o-0043 그리고 세번째로 이 일이 어떻게 일어났는지 나도 좀 알고 싶어
+- 6rmA67SJ7KeE-pcbyke6A35o-0049 저도 그때 그런 느낌이었고 사실 지금도 계속 같은 느낌인 것 같아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0050 그래서 일단 비전이 굉장히 중요하다 라고 모두가 얘기해서 비전이란 걸 만들었어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0052 이게 중요한 게 아니고요 오늘 이야기에서는
+- 6rmA67SJ7KeE-pcbyke6A35o-0054 저도 회사를 다니면서 그전 회사를 다니면서
+- 6rmA67SJ7KeE-pcbyke6A35o-0055 창업자가 만들고 대표이사가 만든 비전이 정말 구성원들에게 개인 개인에게
+- 6rmA67SJ7KeE-pcbyke6A35o-0058 이런 생각이 들어서 구성원들한테 물어봤어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0060 그게 구성원 개개인의 비전이 될 수도 있겠죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0061 제가 그전에 다녔던 회사도 사실은 비슷한 느낌이었는데
+- 6rmA67SJ7KeE-pcbyke6A35o-0062 저는 그냥 아침에 밥이 잘 나오고 회사 버스가 잘 나오고
+- 6rmA67SJ7KeE-pcbyke6A35o-0063 복지가 잘 되어있어서 실비보험도 들어있고 이런게 되게 좋았거든요
+- 6rmA67SJ7KeE-pcbyke6A35o-0066 창업자와 구성원 개개인의 비전은 실질적으로 다를 수도 있다는 생각을 좀 해봤어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0067 굳이 다 맞추려고 하지 말자
+- 6rmA67SJ7KeE-pcbyke6A35o-0068 그래서 구성원들에게 물어봤어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0069 어떤 회사가 됐으면 좋겠습니까 라고 해서 만들어진게 버킷리스트예요
+- 6rmA67SJ7KeE-pcbyke6A35o-0071 그런데 걱정이 들었죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0074 해줄 수도 없는데
+- 6rmA67SJ7KeE-pcbyke6A35o-0075 실제로 그런 얘기를 한 사람은 아무도 없었고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0076 굉장히 사소하고 작은 이야기들을 했어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0077 금발의 미녀와 함께 일하고 싶어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0078 해외도 진출하는 글로벌한 회사가 됐으면 좋겠다 이런 이야기죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0081 유명인사를 초청해서 강연을 듣고 싶다
+- 6rmA67SJ7KeE-pcbyke6A35o-0083 사원증을 목에 걸고 다니고 싶다 이런 것도 있어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0086 명절 때 가족들에게 우리 회사에 대해서 자랑스럽게 설명했으면 좋겠다 이런 이야기죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0087 한적한 곳에 회사가 위치했으면 좋겠다
+- 6rmA67SJ7KeE-pcbyke6A35o-0089 생각보다 대단한 것들은 없잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0090 연봉도 평균 1억 이상 맞춰주세요 이런 것들도 없어서
+- 6rmA67SJ7KeE-pcbyke6A35o-0091 가능도 하겠다 이런 생각이 들었어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0093 하나씩 하나씩 체크를 해 나가요
+- 6rmA67SJ7KeE-pcbyke6A35o-0096 회사에서 창밖을 찍은 사진을 보여드릴게요
+- 6rmA67SJ7KeE-pcbyke6A35o-0098 여러분 거짓말이 아니고요 진짜고
+- 6rmA67SJ7KeE-pcbyke6A35o-0099 저는 이런 위치에 사무실이 있을 거라 생각도 해본 적이 없었어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0101 굉장히 저도 설레고 즐거운 느낌이 들었죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0102 저 롯데월드 매직아이랜드를 보면서 이런 생각이 들었어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0105 저희도 이제 돈이 많은 회사가 아니어서 컴컷팅으로 몇천 원이면 정도면 저렇게 해요
+- 6rmA67SJ7KeE-pcbyke6A35o-0106 우리도 날 수 있어 이렇게 하고
+- 6rmA67SJ7KeE-pcbyke6A35o-0107 이 앞을 바라볼 수 있는 그 전에는 이 공간이 사장님이 쓰는 임원 회의실이었어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0108 너무 아깝다 구성원들이 더 이런 공간을 잘 볼 수 있었음 좋겠다 해서
+- 6rmA67SJ7KeE-pcbyke6A35o-0109 이렇게 스탠드형식으로 예쁘게 꾸며 가지고
+- 6rmA67SJ7KeE-pcbyke6A35o-0110 창 밖을 바라보면서 회의도 하고 잠도 잘 수 있고 이런 공간으로 만들었죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0111 이런 공간에서 일을 언제든지 할 수 있게 콘센트도 이렇게 곳곳에 다 박아져 있고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0112 사원증에 대한 문제는 저는 사실 그전에 조금 큰 회사를 다녔기 때문에
+- 6rmA67SJ7KeE-pcbyke6A35o-0113 당연히 사원증이 있었기 때문에
+- 6rmA67SJ7KeE-pcbyke6A35o-0114 작은 회사에서 구성원들이 사원증이 없는 거에 대해서 이렇게 심각하게 생각하는지 몰랐어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0116 자기는 회사를 다니면 당연히 점심시간 때 친한 언니랑 팔짱을 끼고 스타벅스 컵을 하나 들고서
+- 6rmA67SJ7KeE-pcbyke6A35o-0117 사원증을 목에 걸고서 거리를 돌아다니는 게 회사원이라고 생각을 했는데 사원증이 없는 거예요
+- 6rmA67SJ7KeE-pcbyke6A35o-0120 사원증에 모든 사람의 캐릭터들을 합성을 해줘요
+- 6rmA67SJ7KeE-pcbyke6A35o-0121 그리고 뒷면에는 가족들 사진을 담아서 이렇게 해서 사원증을 만들어줍니다
+- 6rmA67SJ7KeE-pcbyke6A35o-0123 아이디어도 잘 나오고 서로 소통 잘 된다고 생각해요
+- 6rmA67SJ7KeE-pcbyke6A35o-0126 평소 때 작은 잡담들을 많이 나눌 수 있도록 하고 있는데요
+- 6rmA67SJ7KeE-pcbyke6A35o-0127 그러기 위해서 공간 안에 사무공간 안에 스피커를 다 설치하고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0128 이렇게 아이패드나 아이팟으로 음악을 틀어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0129 사무실에서 그냥 평소 때 음악이 나오고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0132 내가 떠드는 게 주변 사람에게 피해가 안 가도록 자연스럽게 얘기를 하고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0133 자리 자리에서 그냥 얘기할 수 있도록 만들었어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0138 음악이 틀어져 있으니까 떠들어도 아무도 눈치를 안 주죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0139 아주 간단한 작은 이야기 하나를 하기 위해서 몰래몰래 조용히 가서
+- 6rmA67SJ7KeE-pcbyke6A35o-0143 이런 것들이 굉장히 비효율적이고 좀 더 자유롭게 얘기 할 수 있는 분위기였으면 좋겠다
+- 6rmA67SJ7KeE-pcbyke6A35o-0145 냉장고예요 음료수를 막 가득가득 채워서 제공해주고 있는데
+- 6rmA67SJ7KeE-pcbyke6A35o-0147 저희가 회사를 다니면 회사에서는 회사에서만 쓰는 말이 있다라고 생각을 하세요
+- 6rmA67SJ7KeE-pcbyke6A35o-0148 굉장히 우아하고 교양있게
+- 6rmA67SJ7KeE-pcbyke6A35o-0149 이메일을 쓸 때도 평소 때 말하는 거랑 구어체와 문어체를 구분해서 얘기하듯이
+- 6rmA67SJ7KeE-pcbyke6A35o-0154 회사에서 작은 이야기들을 농담 같은 이야기들을 계속 나누게 하고
+- 6rmA67SJ7KeE-pcbyke6A35o-0155 그런 것들이 구성원들이 다른 이야기를 계속 나누게 돕고 있죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0157 구성원 중에 여직원이 남자직원들 피부가 너무 안 좋다고
+- 6rmA67SJ7KeE-pcbyke6A35o-0159 생일빵도 저렇게 스페셜하게 준비해서 하기도 하고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0160 빼빼로데이예요
+- 6rmA67SJ7KeE-pcbyke6A35o-0162 회사에서는 달성하고 싶은 KP I 같은 것들이 있죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0163 어떤 목표를 달성해야지만 뭔가 축하를 해주고 그러는데요
+- 6rmA67SJ7KeE-pcbyke6A35o-0164 저희는 그냥 평소 때 수시로 이런 것들을 해요
+- 6rmA67SJ7KeE-pcbyke6A35o-0165 화이트데이니 밸런타인데이니 뭐 빼빼로데이니 어떤 날들
+- 6rmA67SJ7KeE-pcbyke6A35o-0166 그냥 저희가 뭔가를 이뤘기 때문에 중요한 행사를 하는 게 아니라
+- 6rmA67SJ7KeE-pcbyke6A35o-0167 그냥 그 시간을 같이 보내는 것 자체가 굉장히 소중한 것이죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0168 이런 것들을 계속 나누면서 하고 있고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0169 아까 말씀드렸던 그 팀에서 이거를 계속 준비해요
+- 6rmA67SJ7KeE-pcbyke6A35o-0173 이제 성장에 대한 이야기를 좀 드릴까 해요
+- 6rmA67SJ7KeE-pcbyke6A35o-0175 회사 곳곳에 책을 널브러지게 해서 사람들이 자연스럽게 책을 접할 수 있도록 분위기를 만들어 드리고 있어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0176 구성원들이 스스로 성장할 수 있는 어떤 동기라던가 이런 것들을 계속 마련해주고 있죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0177 이거는 아까 말씀드렸던 유명한 강사님들을 계속 초청해서 강연을 하고 있고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0179 엔지니어들은 또 일주일이나 이주일에 한번씩 모여서
+- 6rmA67SJ7KeE-pcbyke6A35o-0180 여태까지 작업했던 코드들을 같이 리뷰하면서 서로 기술을 또 연마하기도 하고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0184 이것만이 어떤 성과를 낼 수 있다 이렇게 해서 회사 내에서는 좀 자유롭게 하더라도
+- 6rmA67SJ7KeE-pcbyke6A35o-0187 복지에 대해서 좀 말씀드리고 싶어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0189 구성원들의 상당 부분이 사실은 복지가 좋은 회사라고 얘기를 했어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0190 제가 이제 말씀드렸어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0191 복지가 좋은 회사라고 얘기하면 난 복지가 뭔지 잘 모르겠어서 그걸 해줄 수가 없어
+- 6rmA67SJ7KeE-pcbyke6A35o-0192 할 수가 없어 그래서 아주 구체적인걸 얘기해 줘
+- 6rmA67SJ7KeE-pcbyke6A35o-0193 그래서 아까 그런 것들을 아주 사원증이 있었으면 좋겠습니다부터 얘길 한 거죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0196 복지를 그냥 여러분들이 생각하시고 저도 그랬어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0197 복지를 생각하면 복지비가 바로 생각이 나죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0198 고용주가 피고용 주에게 어떤 돈으로서 뭔가를 사서 주거나 인센티브를 주거나
+- 6rmA67SJ7KeE-pcbyke6A35o-0200 사실 행복한 삶이라는 것은 받기만 해서 만들어진다라고 생각하진 않잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0201 여러분 모두 그런 생각을 갖고 계시잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0202 내가 어떤 조직에서 어떤 행동을 하거나 남들을 돕거나 할 때도 그런 것들을 많이 느낄 수 있잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0203 저희는 좀 약간 다른 복지제도를 또 가지고 있는 것들이 있는데
+- 6rmA67SJ7KeE-pcbyke6A35o-0204 여기서도 좀 설명 드릴까 합니다
+- 6rmA67SJ7KeE-pcbyke6A35o-0205 음 회사에서 기분 나쁜 일이 있었어 나 회사에서 우울해
+- 6rmA67SJ7KeE-pcbyke6A35o-0206 아니면 나 회사 다니기 너무 좋아 신나
+- 6rmA67SJ7KeE-pcbyke6A35o-0207 이런 얘기들을 할 때 여러분들이 그 얘기하는 회사의 주체는 뭘까요
+- 6rmA67SJ7KeE-pcbyke6A35o-0208 사장님인가요
+- 6rmA67SJ7KeE-pcbyke6A35o-0212 그러면은 굉장히 회사 다니기가 싫어지잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0214 반대로 생각하면 나 역시 다른 누군가에게 회사라는 것이죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0215 여러분들도 동의하시나요
+- 6rmA67SJ7KeE-pcbyke6A35o-0216 이런 문구들이 저희는 회사 곳곳에 붙여놔요
+- 6rmA67SJ7KeE-pcbyke6A35o-0217 구성원들이 갑자기 늘어날 때가 있었어요 그럴 때 이제 어떤 문제가 생겼냐면요
+- 6rmA67SJ7KeE-pcbyke6A35o-0218 전에 있었던 창업자들 공동 창업자들이 이런 얘기를 해요
+- 6rmA67SJ7KeE-pcbyke6A35o-0219 새로운 구성원들이 보면 인사를 안 한대요
+- 6rmA67SJ7KeE-pcbyke6A35o-0220 가만히 생각해 봤어요 인사라는 게 뭘까
+- 6rmA67SJ7KeE-pcbyke6A35o-0222 그래서 얘기를 해봤죠 인사는 그냥 사람하고 사람이 하는 거잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0223 직급이 낮은 사람이 직급이 높은 사람에게 하는 게 인사는 아니잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0224 그래서 구성원들하고 이런 얘기를 했어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0225 모든 사람이 인사를 받고 싶잖아요 그렇죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0227 반대로 내가 누군가에게 먼저 인사를 하면 그 사람에게 반갑게 인사를 받을 수 있는 거잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0228 저희가 얘기하고 있는 거는 인사받고 싶으면 먼저 인사해라
+- 6rmA67SJ7KeE-pcbyke6A35o-0229 그러면 내가 행복하게 회사를 다닐 수 있다
+- 6rmA67SJ7KeE-pcbyke6A35o-0231 그리고 아까 말씀드렸던 그 복지에 대한 이야기를 하다 보니까 이런 것들이 생겼어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0235 청소하는 아주머니가 계시긴 한데
+- 6rmA67SJ7KeE-pcbyke6A35o-0236 아 이런 거를 우리가 자발적으로 좀 해보자
+- 6rmA67SJ7KeE-pcbyke6A35o-0239 매일 매일 아침에 먹는 과일들을 씻어서 즉 구성원들이 먹을 과일을 씻어 놓고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0242 이걸 어떻게 선택을 하냐면요
+- 6rmA67SJ7KeE-pcbyke6A35o-0243 막내가 되는 게 아니라 인턴부터 대표이사까지 다 똑같이 제비뽑기를 해서 뽑아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0244 걸리면 그냥 한 달 동안 그 일을 해야 되요
+- 6rmA67SJ7KeE-pcbyke6A35o-0245 저기 옆에 지금 남자분 계시잖아요 저희 계발 이사님이세요
+- 6rmA67SJ7KeE-pcbyke6A35o-0246 되게 행복해하시죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0248 이런 것들도 같이하면서 나누고 있고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0249 평일 날 하루 정도 날짜를 잡아서 이렇게 같이 청소를 하기도 합니다
+- 6rmA67SJ7KeE-pcbyke6A35o-0250 그러면서 우리가 같이 쓰는 구성원들이 쓰는 공간이나 같이 쓰는 장소에 대해서
+- 6rmA67SJ7KeE-pcbyke6A35o-0251 우리가 어떤 생각을 가지고 있는지 한 번씩 더 생각해보기도 하죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0252 여러분이 회사를 다니시면 회사에서 많은 것들을 제공해주실 거예요
+- 6rmA67SJ7KeE-pcbyke6A35o-0254 개발자면 개발만 잘하도록 다른 곳에 신경 쓰지 않도록 여러 가지 배려를 해줄 테지만
+- 6rmA67SJ7KeE-pcbyke6A35o-0255 사실은 내가 회사에 가서 코딩만 열심히 잘하고 오면 행복한가요
+- 6rmA67SJ7KeE-pcbyke6A35o-0256 그렇지 않잖아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0257 내 주변 사람들하고 어떤 이야기를 나누고 무엇을 먹고 어떤 것들을 얘기했는지가
+- 6rmA67SJ7KeE-pcbyke6A35o-0258 사실은 나에게 가장 중요한 행복이 아닐까 생각이 듭니다
+- 6rmA67SJ7KeE-pcbyke6A35o-0259 저희도 회사에서 어떤 행사를 하면은 이런 것들이 생겨나요 자발적인 노예
+- 6rmA67SJ7KeE-pcbyke6A35o-0260 자발적 동기에 의해서 내가 이 행사에 참여하겠다
+- 6rmA67SJ7KeE-pcbyke6A35o-0262 노예들을 뽑는 노예상인도 있어요
+- 6rmA67SJ7KeE-pcbyke6A35o-0263 자발적 노예들이 모여가지고 회사의 행사들을 준비하고 이런 것들을 진행하기도 하죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0264 시간이 다 되어서 이제 마지막 이야기를 드릴까 해요
+- 6rmA67SJ7KeE-pcbyke6A35o-0267 회사가 돈을 벌어야 되고 그 돈을 버는 것보다 더 중요한 것은 고객을 만들어야 되는데
+- 6rmA67SJ7KeE-pcbyke6A35o-0268 고객을 창출하기 위해서는 그 고객들을 만족시키는 어떤 서비스나 재화 이런 것들을 만들어야 되죠
+- 6rmA67SJ7KeE-pcbyke6A35o-0269 근데 그것을 누가 만드냐면 직원들이 만들게 되죠 구성원들이 만들게 되는거고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0270 그 구성원들이 스스로 그것들에 라한 만족감이 있다면 알아서 굉장히 잘 만들 수 있다라고 생각이 듭니다
+- 6rmA67SJ7KeE-pcbyke6A35o-0271 그런데 아까 말씀 드렸던 것처럼
+- 6rmA67SJ7KeE-pcbyke6A35o-0272 회사에서 줄 수 있는 것은 물질적인 것 이상은 힘들 것 같아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0273 그렇죠 여러분들도 여러분들이 가지고 있는 내 주변 사람들 내 주변의 동료들과
+- 6rmA67SJ7KeE-pcbyke6A35o-0274 눈을 마주치고 인사만 잘해도 내가 아 이 회사에서 정말 필요한 사람이구나
+- 6rmA67SJ7KeE-pcbyke6A35o-0275 그리고 내가 오늘은 어떤 일을 해야지 이런 생각이 들지 않을까 생각이 듭니다
+- 6rmA67SJ7KeE-pcbyke6A35o-0276 아직 저희도 좋은 회사라고는 말씀 드리기는 힘들 것 같아요
+- 6rmA67SJ7KeE-pcbyke6A35o-0277 세상에 유토피아가 없는 것처럼 좋은 회사가 존재하기 힘들 거라고 생각이 들고요
+- 6rmA67SJ7KeE-pcbyke6A35o-0278 다만 저희는 앞으로도 계속 좋은 회사가 되기 위해서 노력을 해보려고 합니다
+- 6rmA67SJ7KeE-pcbyke6A35o-0280 감사합니다

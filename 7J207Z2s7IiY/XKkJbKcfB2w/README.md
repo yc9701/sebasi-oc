@@ -1,0 +1,63 @@
+### Sebasi Open Corpus: 이제 함께 공부해야 하는 시대입니다 | 이희수 중앙대학교 교육학과 교수 | 강의 강연 영상 듣기 | 세바시 842회
+
+- Speaker: 이희수
+- Gender: 
+- Length: 3:19 in 50 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=XKkJbKcfB2w] (https://www.youtube.com/watch?v=XKkJbKcfB2w)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7J207Z2s7IiY-XKkJbKcfB2w-0004 오늘은 커피 좀 타려고 나왔습니다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0006 애틀란타 아래있는 에센이라는
+- 7J207Z2s7IiY-XKkJbKcfB2w-0008 그래서 지주의 아들들이 다 하버드 동부로 가니까
+- 7J207Z2s7IiY-XKkJbKcfB2w-0009 “공부를 위해서 굳이 조지아를 떠나지 말라” 해서 동네 이름도 뭐야
+- 7J207Z2s7IiY-XKkJbKcfB2w-0017 아하 커피 한 잔을 마시면서
+- 7J207Z2s7IiY-XKkJbKcfB2w-0018 뭐를 나눠요
+- 7J207Z2s7IiY-XKkJbKcfB2w-0021 공동체
+- 7J207Z2s7IiY-XKkJbKcfB2w-0022 우리 나라처럼 야단법석 떨면서
+- 7J207Z2s7IiY-XKkJbKcfB2w-0023 마을 공동체 만들기 이런 거 하지 않더라
+- 7J207Z2s7IiY-XKkJbKcfB2w-0029 왁자지껄하더라
+- 7J207Z2s7IiY-XKkJbKcfB2w-0036 경험으로 이루어진다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0039 오늘 여러분들이 모이고 있는 이 모습은 빙산 그 자체다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0044 우리가 잘 아는 다윈 밀턴 이런 대석학의 강의를 들을 수 있어서
+- 7J207Z2s7IiY-XKkJbKcfB2w-0053 오늘은 공동체를 돋우는 비밀
+- 7J207Z2s7IiY-XKkJbKcfB2w-0054 뭔가를 더하는 것이 아니라 빼면서 삽시다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0055 제 나이 또래된 사람치고 이거 안 받아본 사람 없을 겁니다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0060 저도 이걸 가지고 집사람한테 경처가래서
+- 7J207Z2s7IiY-XKkJbKcfB2w-0061 내가 어떻게 살면 좋겠습니까 이 나이에
+- 7J207Z2s7IiY-XKkJbKcfB2w-0062 오십이 넘었으니 내가 100세까지를 사는데
+- 7J207Z2s7IiY-XKkJbKcfB2w-0069 이 두 가지가 바로
+- 7J207Z2s7IiY-XKkJbKcfB2w-0070 부부 간의 갈등을 해결하는 데에도 부부 공동체를 이루는 데에도
+- 7J207Z2s7IiY-XKkJbKcfB2w-0071 더하는 것이 아니라 받침 하나만 빼면 되더라
+- 7J207Z2s7IiY-XKkJbKcfB2w-0075 컨셉 장사를 하지 말고 포장을 하지 말고
+- 7J207Z2s7IiY-XKkJbKcfB2w-0078 작년에 작고하신 앨빈 토플러 선생의
+- 7J207Z2s7IiY-XKkJbKcfB2w-0081 이거였는데 저보고 말을 하라면
+- 7J207Z2s7IiY-XKkJbKcfB2w-0082 실은 버리고 내려놓고 비워야 살더라 하는 저의 고백인데
+- 7J207Z2s7IiY-XKkJbKcfB2w-0087 그러면서 지금부터 내 말 들을래 죽을래
+- 7J207Z2s7IiY-XKkJbKcfB2w-0093 비워라 그래야 채울 것이다 내려 놓아라 그래야 쌓을 것이다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0094 제가 몸담고 있는 학교에 학생들하고
+- 7J207Z2s7IiY-XKkJbKcfB2w-0095 조금 나이 차가 세대 차이가 있어서
+- 7J207Z2s7IiY-XKkJbKcfB2w-0099 우리 같이
+- 7J207Z2s7IiY-XKkJbKcfB2w-0107 우리 성인들은 이제는 홀로 학습 솔로 학습을 못 합니다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0111 통계청에서 내놓은 한번 통계를 볼까요
+- 7J207Z2s7IiY-XKkJbKcfB2w-0114 그런데 통계적으로 계산을 해보니까
+- 7J207Z2s7IiY-XKkJbKcfB2w-0125 일하는 곡선이 떨어지면 주체할 수 없는 무슨 곡선만 올라가요
+- 7J207Z2s7IiY-XKkJbKcfB2w-0131 당신 돋우다라는 말을 아느냐
+- 7J207Z2s7IiY-XKkJbKcfB2w-0137 제 밥그릇 다 갖고 태어난다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0144 왜 등잔불을 돋울까
+- 7J207Z2s7IiY-XKkJbKcfB2w-0154 서로의 학교 다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0156 나보고 교육학적으로 말하라고 하면
+- 7J207Z2s7IiY-XKkJbKcfB2w-0164 모든 사람들이 공동체를 말하더라
+- 7J207Z2s7IiY-XKkJbKcfB2w-0165 벌써부터 우리는 1월 20일 쯤 되면은
+- 7J207Z2s7IiY-XKkJbKcfB2w-0170 다들 보스들만 참여해서 다보스다
+- 7J207Z2s7IiY-XKkJbKcfB2w-0171 그런데 정작 그 최고로 잘 나가는 CEO들이 모인 다보스 포럼의 내년도 의제가 무엇일까
+- 7J207Z2s7IiY-XKkJbKcfB2w-0175 함께 하자
+- 7J207Z2s7IiY-XKkJbKcfB2w-0177 투게더 아이스크림
+- 7J207Z2s7IiY-XKkJbKcfB2w-0182 공부도 그러면 성인들은 어떻게 해야 되겠어요
+- 7J207Z2s7IiY-XKkJbKcfB2w-0188 나 한 사람으로 시작해서 우리로 열리는 이야기
+- 7J207Z2s7IiY-XKkJbKcfB2w-0191 옆 사람의 학습 심지가 올라가고
+- 7J207Z2s7IiY-XKkJbKcfB2w-0193 공동체는 가능할 것이다

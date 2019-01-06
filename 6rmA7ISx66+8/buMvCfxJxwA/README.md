@@ -1,0 +1,217 @@
+### Sebasi Open Corpus: (Kor) 세바시 415회 시시한 아이디어들이 성공하는 이유 | 김성민 IWELL 대표, 장미와 찔레 저자
+
+- Speaker: 김성민
+- Gender: 
+- Length: 9:0 in 204 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=buMvCfxJxwA] (https://www.youtube.com/watch?v=buMvCfxJxwA)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7ISx66+8-buMvCfxJxwA-0001 네 안녕하세요
+- 6rmA7ISx66+8-buMvCfxJxwA-0002 방금 소개 받은 김성민입니다
+- 6rmA7ISx66+8-buMvCfxJxwA-0008 젊은 분들이 열정이 없다는 건 좀 잘못된 말인 거 같아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0009 그리고 실제로 도전을 많이 하시고 싶은 분들이 계셔서
+- 6rmA7ISx66+8-buMvCfxJxwA-0011 창업을 하는 분들도 되게 많더라고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0012 저희 때만 해도 그렇지 않았었거든요
+- 6rmA7ISx66+8-buMvCfxJxwA-0013 그래서 제가 몇 년 먼저 창업을 했다는 이유만으로
+- 6rmA7ISx66+8-buMvCfxJxwA-0016 제가 그런 분들을 만나보면은
+- 6rmA7ISx66+8-buMvCfxJxwA-0017 공통적으로 느끼는 게 두 가지가 있어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0018 첫 번째는 일단 아이디어가 너무 신선하고 좋다는 거예요
+- 6rmA7ISx66+8-buMvCfxJxwA-0019 정말 이런 생각을 어떻게 했을까 진짜 기발하다 싶을 정도로
+- 6rmA7ISx66+8-buMvCfxJxwA-0021 두 번째는 스스로 너무 뛰어난 아이디어를 가지고 와서 그런지
+- 6rmA7ISx66+8-buMvCfxJxwA-0028 사실은 내가 생각하는 이런 신선한 아이디어가 진짜 벤처다
+- 6rmA7ISx66+8-buMvCfxJxwA-0029 이런 얘기를 하시더라고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0030 근데 제가 그 얘기를 들으면서 그런 것 같아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0031 근데 그럼에도 불구하고 드는 생각이 좀 아쉬움이 있어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0032 실제로 우리 현실을 보면
+- 6rmA7ISx66+8-buMvCfxJxwA-0033 그런 분들이 생각하는 정말 멋있고 신선하고 기발한 아이디어들 보다
+- 6rmA7ISx66+8-buMvCfxJxwA-0034 에이 저게 뭐야 저건 아무것도 아니잖아
+- 6rmA7ISx66+8-buMvCfxJxwA-0035 저건 누구나 생각할 수 있잖아 라고 했던
+- 6rmA7ISx66+8-buMvCfxJxwA-0036 그런 뻔하고 시시한 아이디어들이 더 잘 되는 경우가 많거든요
+- 6rmA7ISx66+8-buMvCfxJxwA-0038 왜 위대한 아이디어는 실패하고 시시한 아이디어가 성공할까
+- 6rmA7ISx66+8-buMvCfxJxwA-0039 여기에 대해서 먼저 얘기를 좀 해 볼려고 해요
+- 6rmA7ISx66+8-buMvCfxJxwA-0040 제가 모먼텀 임팩트라는 책을 읽어봤거든요
+- 6rmA7ISx66+8-buMvCfxJxwA-0043 그걸 그대로 받아들이지 않고 제 나름대로 재해석을 하거든요
+- 6rmA7ISx66+8-buMvCfxJxwA-0045 그 책에 나온 내용은 이런 내용이었어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0047 니즈라는 거는 사람들이 필요로 하는 거 욕구잖아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0048 사람들 누구나 누가 이것 좀 해주었으면 좋겠는데 하는 것들이 있단 말이에요
+- 6rmA7ISx66+8-buMvCfxJxwA-0050 고맙다는 감사 인사를 받고
+- 6rmA7ISx66+8-buMvCfxJxwA-0051 우리나라에서 제일 작은 구멍가게 같은 기업부터 시작해서
+- 6rmA7ISx66+8-buMvCfxJxwA-0052 전 세계에서 가장 큰 기업도 비즈니스의 본질은 똑같은 거예요
+- 6rmA7ISx66+8-buMvCfxJxwA-0056 나한테 필요한 게 어떤 거야라고 정확히 알고 있는 경우가 있고
+- 6rmA7ISx66+8-buMvCfxJxwA-0057 나한테 뭐가 필요한지 모르는 경우가 있는 거죠
+- 6rmA7ISx66+8-buMvCfxJxwA-0058 그리고 회사도
+- 6rmA7ISx66+8-buMvCfxJxwA-0059 고객한테 뭐가 필요한지 정확히 알고 있는 경우가 있고
+- 6rmA7ISx66+8-buMvCfxJxwA-0060 뭐가 필요한지 모르는 경우가 있는 거죠
+- 6rmA7ISx66+8-buMvCfxJxwA-0063 고객도 알고 있고 회사도 알고 있는 경우
+- 6rmA7ISx66+8-buMvCfxJxwA-0064 고객은 아는데 회사는 모르는 경우
+- 6rmA7ISx66+8-buMvCfxJxwA-0065 고객은 모르지만 회사는 아는 경우
+- 6rmA7ISx66+8-buMvCfxJxwA-0067 그럼 여기서 첫번째
+- 6rmA7ISx66+8-buMvCfxJxwA-0068 고객도 알고 회사도 알면 어떻게 해야 될까요
+- 6rmA7ISx66+8-buMvCfxJxwA-0069 예를 들면 제가 지금 여기 올라왔잖아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0071 긴장했더니 목이 마른데요
+- 6rmA7ISx66+8-buMvCfxJxwA-0072 이러면은 저는 제가 지금 목이 마르다는 걸 알고 있죠
+- 6rmA7ISx66+8-buMvCfxJxwA-0074 그럼 어떻게 해야 돼요
+- 6rmA7ISx66+8-buMvCfxJxwA-0078 둘 다 알고 있을 때는
+- 6rmA7ISx66+8-buMvCfxJxwA-0079 그럼 반대로 저는 지금 목이 말라요
+- 6rmA7ISx66+8-buMvCfxJxwA-0080 근데 이미 카메라도 돌아가고 있고
+- 6rmA7ISx66+8-buMvCfxJxwA-0089 혹사 더 필요한 거 없느냐 이런 식으로
+- 6rmA7ISx66+8-buMvCfxJxwA-0090 그럼 반대로 제가 뭐가 필요한 지 몰라요
+- 6rmA7ISx66+8-buMvCfxJxwA-0091 근데 여러분들은 알고 있어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0092 예를 들자면 어떤 분이 평생 동안 한번도 강연을 안 해보신 분인데
+- 6rmA7ISx66+8-buMvCfxJxwA-0094 근데 그게 하필이면 세바시예요
+- 6rmA7ISx66+8-buMvCfxJxwA-0096 얼마나 막 떨리겠어요 말도 잘 못 하시는데
+- 6rmA7ISx66+8-buMvCfxJxwA-0097 그래서 어떡하지 어떡하지 하고 원고를 아무리 외워도
+- 6rmA7ISx66+8-buMvCfxJxwA-0103 이게 뭐냐
+- 6rmA7ISx66+8-buMvCfxJxwA-0107 그걸 듣고 따라 해라 원고를 보고할 순 없으니까
+- 6rmA7ISx66+8-buMvCfxJxwA-0108 오 이거 나한테 꼭 필요한 거야 하고 돈을 내고 사지 않겠어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0110 다가가서 이게 너한테 얼마나 필요한 건지를
+- 6rmA7ISx66+8-buMvCfxJxwA-0111 교육하고 설명하고 설득시켜서 사게 하는 거죠
+- 6rmA7ISx66+8-buMvCfxJxwA-0113 마지막으로 저도 모르고 여러분도 모르면
+- 6rmA7ISx66+8-buMvCfxJxwA-0114 사실 책에서는 백지개척이다 뭐 이렇게 나왔는데
+- 6rmA7ISx66+8-buMvCfxJxwA-0116 둘 다 모르기 때문에 단서가 없어서
+- 6rmA7ISx66+8-buMvCfxJxwA-0118 1 2 3 4번 안에 있다고 하는데요
+- 6rmA7ISx66+8-buMvCfxJxwA-0119 더 좀 정확히 보면은
+- 6rmA7ISx66+8-buMvCfxJxwA-0120 사실은 2 3 4 번은 다 1번으로 가기 전 단계일 뿐인 거 같아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0121 그러니까 저는 알고 있는데 여러분이 모른다
+- 6rmA7ISx66+8-buMvCfxJxwA-0122 그럼 빨리 저한테 물어봐서 서로 아는 방향으로 가는 거고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0123 제가 모르는데 여러분이 안다
+- 6rmA7ISx66+8-buMvCfxJxwA-0124 빨리 저한테 알려줘서 서로 아는 쪽으로 가는 거죠
+- 6rmA7ISx66+8-buMvCfxJxwA-0125 사실 비즈니스라는 거는 거의 1번에서
+- 6rmA7ISx66+8-buMvCfxJxwA-0128 세상을 바꾸는 새로운 방법들에 대해서 만나보는 시간인데
+- 6rmA7ISx66+8-buMvCfxJxwA-0129 이렇게 하면 뭔가 굉장히 거창하잖아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0130 그러면 사람들이 이런 생각을 하게 돼요
+- 6rmA7ISx66+8-buMvCfxJxwA-0132 아마 여러분들도 비슷한 생각을 하시지 않을까 싶은데요
+- 6rmA7ISx66+8-buMvCfxJxwA-0133 세상을 바꾸는 아이디어들은
+- 6rmA7ISx66+8-buMvCfxJxwA-0134 1 2 3 4번 중에 어디에 많이 있을 거 같으세요
+- 6rmA7ISx66+8-buMvCfxJxwA-0135 4개 중에 찍는 게 좀 어려우면은
+- 6rmA7ISx66+8-buMvCfxJxwA-0136 고객이 알고있는 1 2번 중에 많을까요
+- 6rmA7ISx66+8-buMvCfxJxwA-0140 저는 그렇지가 않은 거 같아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0141 3 4번은 어떤 문제가 있느냐
+- 6rmA7ISx66+8-buMvCfxJxwA-0145 이 한 단계 한 단계가 굉장히 어렵거든요
+- 6rmA7ISx66+8-buMvCfxJxwA-0146 이거를 성공시키기가 되게 힘들어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0147 예를 들면 저는 출판 사업을 하니까
+- 6rmA7ISx66+8-buMvCfxJxwA-0148 출판인들의 꿈은 베스트셀러를 내는 거거든요
+- 6rmA7ISx66+8-buMvCfxJxwA-0149 저는 이걸 내면 무조건 베스트셀러가 되는 아이템을 몇개 알고 있어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0152 그게 뭐냐
+- 6rmA7ISx66+8-buMvCfxJxwA-0153 오바마 대통령에게 배우는 영어 공부법이에요
+- 6rmA7ISx66+8-buMvCfxJxwA-0154 저자가 오바마
+- 6rmA7ISx66+8-buMvCfxJxwA-0155 이건 뭐 안 팔릴 수가 없어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0156 근데 이건 성사될 수가 없어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0157 왜냐하면 제가 오바마를 저자로 섭외할 수 있는 역량이 아직 없기 때문에
+- 6rmA7ISx66+8-buMvCfxJxwA-0158 다시 말씀드려서 아까 3번이나 4번에 해당하는 시장은요
+- 6rmA7ISx66+8-buMvCfxJxwA-0160 고객을 설득시키고 교육하는 게 마케팅 활동 같은 거거든요
+- 6rmA7ISx66+8-buMvCfxJxwA-0162 근데 마케팅 활동을 성공시키려면 굉장한 자산이 필요해요
+- 6rmA7ISx66+8-buMvCfxJxwA-0163 예를 들면 되게 유명한 탑 스타들을 섭외해서
+- 6rmA7ISx66+8-buMvCfxJxwA-0164 CF를 만들어서 계속 황금시간에 하고
+- 6rmA7ISx66+8-buMvCfxJxwA-0167 나한테 필요한가 보다 라는 식으로 생각을 불러 일으키게끔
+- 6rmA7ISx66+8-buMvCfxJxwA-0169 근데 보통의 기업들은 그걸 할 수가 없어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0170 대부분은 자산도 부족하고 여력도 부족하기 때문에
+- 6rmA7ISx66+8-buMvCfxJxwA-0171 혹시 이런 여력이 없으면
+- 6rmA7ISx66+8-buMvCfxJxwA-0172 이런 거라도 있어야 돼요
+- 6rmA7ISx66+8-buMvCfxJxwA-0173 CEO가 굉장한 카리스마적 매력이나 두터운 팬 층을 가지고 있어야 돼요
+- 6rmA7ISx66+8-buMvCfxJxwA-0174 예를 들면 스티브잡스 아저씨는 말년에
+- 6rmA7ISx66+8-buMvCfxJxwA-0175 연필 같은 거 팔았어도 잘 됐을 거 같아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0176 잡스 아저씨가 쓰는 연필
+- 6rmA7ISx66+8-buMvCfxJxwA-0178 솜사탕을 팔았어도 잘 됐을 거 같아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0179 뭔가 좀 괜찮을 거 같은 스마트 솜사탕 이러면서
+- 6rmA7ISx66+8-buMvCfxJxwA-0184 그러니까 진짜 이 시장에 없는 분위기를 만들어 낼 수 있는
+- 6rmA7ISx66+8-buMvCfxJxwA-0185 엄청난 여유 자본적 여유라든지
+- 6rmA7ISx66+8-buMvCfxJxwA-0187 그런 게 있어야 되는 거예요
+- 6rmA7ISx66+8-buMvCfxJxwA-0188 그런데 이제 막 세상을 움직이려고 시작하는 분들은
+- 6rmA7ISx66+8-buMvCfxJxwA-0190 신인한테 어떻게 아우라가 있을 수 있어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0191 그러니까 사실은 저한테 찾아오는 아이디어를 가지고 계신 분들이
+- 6rmA7ISx66+8-buMvCfxJxwA-0192 정말 그 아이디어가 엄청나게 대단함에도 불구하고
+- 6rmA7ISx66+8-buMvCfxJxwA-0193 대부분은 실패하시는 거예요
+- 6rmA7ISx66+8-buMvCfxJxwA-0194 더 정확히 말씀 드리면 성공할 순 있어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0195 5년 10년 20년 계속 그 길을 파면
+- 6rmA7ISx66+8-buMvCfxJxwA-0197 근데 그때까지 버틸 수 있는 여력이 없는 거예요
+- 6rmA7ISx66+8-buMvCfxJxwA-0200 세상을 움직인다는 게
+- 6rmA7ISx66+8-buMvCfxJxwA-0201 3 4번에 물론 3 4번이 성공하면 엄청 혁명적인 변화가 일어나겠지만
+- 6rmA7ISx66+8-buMvCfxJxwA-0202 세상은 혁명으로만 바뀌는 건 아닌 거 같거든요
+- 6rmA7ISx66+8-buMvCfxJxwA-0203 혁명으로 바뀌는 건 굉장히 이례적인 일이고
+- 6rmA7ISx66+8-buMvCfxJxwA-0204 보통은 아주 여러 사람들이 꾸준히 각자의 분야에서
+- 6rmA7ISx66+8-buMvCfxJxwA-0205 조금씩 조금씩 발전시켜 온
+- 6rmA7ISx66+8-buMvCfxJxwA-0206 점진적인 발전 점진적인 진보에 의해서 바뀌는 것 같아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0207 그래서 사실은 여러분이 세상을 바꾸고 싶을 때
+- 6rmA7ISx66+8-buMvCfxJxwA-0208 아직 그런 자산이 없다면
+- 6rmA7ISx66+8-buMvCfxJxwA-0209 일단은 1 2번에 해당되는 걸 먼저 해야 하지 않을까 라는 생각을 해봤어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0210 저한테 가져오시는 엄청나게 유력한 아이디어들 보다
+- 6rmA7ISx66+8-buMvCfxJxwA-0212 더 싸고 더 맛있는 떡볶이 아니면 더 매운 떡볶이
+- 6rmA7ISx66+8-buMvCfxJxwA-0213 아니면 먹으면 살이 빠지는 김밥 이런 걸 만드시면
+- 6rmA7ISx66+8-buMvCfxJxwA-0215 저는 2007년 10월에 장미와 찔레라는 책을 처음 썼고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0216 그 다음에 6년 2개월 후에 장미와 찔레 2편을 냈어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0217 1편은 굉장히 명작이었는데요
+- 6rmA7ISx66+8-buMvCfxJxwA-0220 그런데 장미와 찔레가 무슨 뜻이냐 하면 이런 거예요
+- 6rmA7ISx66+8-buMvCfxJxwA-0221 장미랑 찔레랑 약간의 차이가 있대요 둘이 친척인데
+- 6rmA7ISx66+8-buMvCfxJxwA-0222 찔레는 조금 꽃이 일찍 핀데요 잘 피고
+- 6rmA7ISx66+8-buMvCfxJxwA-0223 그리고 꽃이 진 다음에도 열매가 열려서 계속 좀
+- 6rmA7ISx66+8-buMvCfxJxwA-0224 오랫동안 감상할 수 있는 소소한 행복을 누릴 수 있는 꽃이고
+- 6rmA7ISx66+8-buMvCfxJxwA-0227 그래서 이 책의 공저자인 저의 지도 교수님이었던
+- 6rmA7ISx66+8-buMvCfxJxwA-0229 학생들한테 진로에 대한 얘기를 해주실 때
+- 6rmA7ISx66+8-buMvCfxJxwA-0232 좀 안정적인 찔레꽃 인생이 있는가 하면
+- 6rmA7ISx66+8-buMvCfxJxwA-0235 그러니까 둘 중에 좀 도전적인 사람은 장미꽃을 선택하고
+- 6rmA7ISx66+8-buMvCfxJxwA-0237 둘 중에 뭐가 더 좋고 나쁜 건 없지만
+- 6rmA7ISx66+8-buMvCfxJxwA-0241 이건 전 좀 더 다른 쪽으로도 연결이 되는 거 같아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0243 예를 들면 이상이냐 현실이냐도 얘기가 되는 거 같고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0244 하고싶은 일을 할 것이냐 해야하는 일을 할 것이냐도 될 거 같고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0246 이런 쪽으로 좀 다양하게 접목이 되는 거 같더라고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0249 저의 할머니가 1월달에 돌아가셨어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0251 엄청 건강하시고 마지막에도 아프시지 않고
+- 6rmA7ISx66+8-buMvCfxJxwA-0253 할머니를 보내드리려고 시골에 갔어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0255 그분이 우리나라에서 장미농사를
+- 6rmA7ISx66+8-buMvCfxJxwA-0256 최초로 외국에 로열티를 주고 제대로 지은 분이래요
+- 6rmA7ISx66+8-buMvCfxJxwA-0257 장미의 아주 권위자예요
+- 6rmA7ISx66+8-buMvCfxJxwA-0258 그분이 이 책을 보시더니 장미와 찔레 제목이 너무 좋대요
+- 6rmA7ISx66+8-buMvCfxJxwA-0260 그래서 이러이러합니다 라고 말씀 드렸거든요
+- 6rmA7ISx66+8-buMvCfxJxwA-0261 그러니까 중요한 걸 모르고 있대요
+- 6rmA7ISx66+8-buMvCfxJxwA-0263 장미를 키우기 위해서 그냥 장미를 심으면 잘 안 자란대요
+- 6rmA7ISx66+8-buMvCfxJxwA-0265 잘 꽃이 피지도 않고
+- 6rmA7ISx66+8-buMvCfxJxwA-0266 펴도 그렇게 크지도 않고
+- 6rmA7ISx66+8-buMvCfxJxwA-0267 색깔도 흐릿하고 그렀대요
+- 6rmA7ISx66+8-buMvCfxJxwA-0270 장미를 심을 때는 무조건 찔레를 먼저 심어서
+- 6rmA7ISx66+8-buMvCfxJxwA-0273 찔레는 굉장히 터프하기 때문에 양분을 쫙 빨아들이는데
+- 6rmA7ISx66+8-buMvCfxJxwA-0274 그렇게 빨아들인 양분을 가지고 장미를 엄청 화려하게 피어내서
+- 6rmA7ISx66+8-buMvCfxJxwA-0276 그 꽃 크기도 훨씬 크고 색깔도 훨씬 진하고
+- 6rmA7ISx66+8-buMvCfxJxwA-0277 상품성 시중에 나와있는 시판용 장미는
+- 6rmA7ISx66+8-buMvCfxJxwA-0280 장미와 찔레는 따로따로 떨어져 있는 게 아니고
+- 6rmA7ISx66+8-buMvCfxJxwA-0281 둘이 뗄래야뗄 수 없는 관계야 라고 하시는 거예요
+- 6rmA7ISx66+8-buMvCfxJxwA-0282 제가 거기서 굉장히 많은 시사점을 얻었어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0283 아까 이게 이상이냐 현실이냐 하고싶은 일이냐 해야하는 일이냐
+- 6rmA7ISx66+8-buMvCfxJxwA-0288 찔레를 심어서 그걸 기반으로 삼아야 하듯이
+- 6rmA7ISx66+8-buMvCfxJxwA-0289 우리가 진짜 가지고 있는 이상 꿈을 펼치기 위해서는
+- 6rmA7ISx66+8-buMvCfxJxwA-0290 현실에 충실해서 그 나름의 자산을 마련해야 되는 거고
+- 6rmA7ISx66+8-buMvCfxJxwA-0291 하고싶은 일이나 좋아하는 일을 진짜로 하기 위해서도
+- 6rmA7ISx66+8-buMvCfxJxwA-0292 제가 해야하는 일과 잘 하는 일에서 매진해서
+- 6rmA7ISx66+8-buMvCfxJxwA-0293 거기에서 나름의 자산
+- 6rmA7ISx66+8-buMvCfxJxwA-0297 그런 자산을 확보한 후에 피어내야
+- 6rmA7ISx66+8-buMvCfxJxwA-0302 라는 생각이 들더라고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0303 그래서 이런 생각이 들었어요
+- 6rmA7ISx66+8-buMvCfxJxwA-0304 결국은
+- 6rmA7ISx66+8-buMvCfxJxwA-0305 장미만 심으려고 해도 안 되는 거고
+- 6rmA7ISx66+8-buMvCfxJxwA-0307 결국은 우리가 진짜로 잘 해내려면
+- 6rmA7ISx66+8-buMvCfxJxwA-0309 세상을 바꾸기 위해 연구하러 왔는데
+- 6rmA7ISx66+8-buMvCfxJxwA-0310 그걸 성공시키려면 결국은
+- 6rmA7ISx66+8-buMvCfxJxwA-0311 찔레의 뿌리 위에 장미의 꽃을 심어야 하는 게 아닐까
+- 6rmA7ISx66+8-buMvCfxJxwA-0312 우리가 진짜 화려한 장미 우리가 정말 원하는 이상을 피어낼 때 까지 요구되는
+- 6rmA7ISx66+8-buMvCfxJxwA-0316 생각보다 힘든 과정들을 잘 이겨내야 하지 않을까
+- 6rmA7ISx66+8-buMvCfxJxwA-0318 바로 비단길이 펼쳐질 거라고 생각하시더라고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0320 그렇지가 않아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0321 꿈으로 향해 가는 길은 비단길이 아니더라고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0324 때로는 늪도 있어요 늪
+- 6rmA7ISx66+8-buMvCfxJxwA-0327 건너고
+- 6rmA7ISx66+8-buMvCfxJxwA-0334 또 건너면서 가는 거더라고요
+- 6rmA7ISx66+8-buMvCfxJxwA-0335 그래서 얼마 전에 제가 굉장히 멋있는 문장을 하나 떠올렸는데
+- 6rmA7ISx66+8-buMvCfxJxwA-0338 검색해 봤는데 안 나오는데요
+- 6rmA7ISx66+8-buMvCfxJxwA-0339 위대함으로 가는 길은
+- 6rmA7ISx66+8-buMvCfxJxwA-0340 그렇게 위대하지 않은 과정들로 이루어져 있는 거 같아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0341 여러분들 다같이 세상을 바꾸자는 엄청난 열정을 가지고 오셨잖아요
+- 6rmA7ISx66+8-buMvCfxJxwA-0342 그 꿈을 이루기 위해서 요구되는
+- 6rmA7ISx66+8-buMvCfxJxwA-0343 시시하고 뻔하고 지루하고 지난한 과정들을 진짜 묵묵히 견뎌내서
+- 6rmA7ISx66+8-buMvCfxJxwA-0344 정말로 우리 모두가 각자의 자리에서 조금씩 조금씩
+- 6rmA7ISx66+8-buMvCfxJxwA-0345 아주 크게 세상을 바꿔 나갈 수 있으면 좋겠습니다
+- 6rmA7ISx66+8-buMvCfxJxwA-0346 감사합니다

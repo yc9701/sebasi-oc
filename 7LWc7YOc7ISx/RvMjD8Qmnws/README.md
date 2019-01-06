@@ -1,0 +1,97 @@
+### Sebasi Open Corpus: (Kor) 세바시 801회 역사 앞에 선다는 것 | 최태성 역사강사
+
+- Speaker: 최태성
+- Gender: 
+- Length: 4:41 in 84 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=RvMjD8Qmnws] (https://www.youtube.com/watch?v=RvMjD8Qmnws)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0003 이렇게 세바시에서 불러주셔서 영광이고요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0005 제가 오늘 사실은 여러분한테
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0006 저 사실 언론이나 방송을 통해서 한 번도 하지 않은 이야기를
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0007 오늘 이 자리에서 처음 고백하려고 합니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0010 자랑스러운 고백은 아니기 때문에
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0011 너그러이 들어주시기 바랍니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0012 제가 1990년도에 대학에 들어갔습니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0014 아직도 1987년 6월 민주화 운동의 여진이 남아있었어요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0021 제가 고등학교 1학년 때였을 거예요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0022 바로 이 6월 민주화 운동을 보면서요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0030 그 반공 소년이 그 범생이 학생이
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0045 그런데 어떻게 합니까 학교를 그만둘 수는 없잖아요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0046 그러니까 어쩔 수 없이 그들하고 그 나쁜 사람들하고 같이 수업도 듣고
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0047 어쩔 수 없이 밥도 같이 먹어야 되고
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0048 어쩔 수 없이 차도 한잔 마시게 되고
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0049 어쩔 수 없이 술도 한잔하게 되고
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0051 포섭된거죠
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0053 그 나쁜 사람들을 통해서
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0054 저는 6월 민주화 운동의 또 다른 모습을 알게 되었습니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0055 그 나쁜 사람들을 통해서
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0060 그들을 이해했음에도 그들과 함께할 수 없었습니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0061 제 친구들이 거리에 나가서 시위하다가
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0064 저는 중앙 도서관에 앉아서
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0065 사학과 학생이 영어책 보고 있었습니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0067 그때 제가 처음으로 역사 앞에 서보게 되는 겁니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0069 첫 경험은 정말 아프더군요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0071 나는 무엇을 해야 되지
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0072 나 어떻게 살아야 되지
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0080 저 살아야 됩니다 저 생존해야됩니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0083 감옥 데려가지도 않겠지만
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0088 공부하고 나중에 너가 안정적 직종을 얻은 다음에
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0089 그때 가서 너가 지금 하지 못 하고 있는
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0092 그렇게 제 대학 생활이 흘러갔습니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0097 내가 대학교 때 역사라는 그 거울 앞에서
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0099 라는 그 생각이 끊임없이 저를 짓누르더라고요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0101 그래 누구랑 비교해서 내가 잘 하는 게 아니라
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0102 내가 가지고 있는 능력 중에서 제일 잘하는 것
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0106 2001년도에 EBS에서 무료강의를 시작했고요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0108 그런데 지금도 저는 무료 강의를 하고 있습니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0113 양질의 강의 양질의 한국사 무료 강의를 통해서
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0114 나 역시 우리 사회의 건강한 시민들을 하나씩 하나씩 만들어 나가는데
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0115 조금이라도 정말 조금이라도 도움이 된다면
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0116 내가 대학교 때
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0117 그 역사 앞에 섰을 때의 그 괴로움을 조금이라도 갚을 수 있지 않을까
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0119 지금도 무료강의를 하고 있고요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0120 앞으로도 무료강의를 계속할 거라고 저는 여러분들에게 약속드립니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0122 역사를 이렇게 만나다 보니까
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0123 정말 대단한 분들은 늘 역사 앞에 서봤더라고요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0127 네 다 아세요 바로 다산 정약용 선생이십니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0128 다산 정약용의 멘토가 누구인지 아십니까
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0133 정조가 1800년에 갑자기 승하하십니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0138 엄청 긴 시간이죠
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0140 그 18년 동안 이 정약용이요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0147 왜 그랬을까요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0148 할 일이 없어서 시간이 많으니까
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0151 그는 그 아들에게 편지를 쓰면서 이렇게 이야기합니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0152 나는 폐족이다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0160 학문을 통해서 우리의 흔적을 남겨야 된다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0163 이 정약용이라는 사람이 18년 긴 유배 생활 동안에
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0166 바로 이거예요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0167 내가 만약에 이 기록을 남기지 않는다면
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0176 정확히 자신의 모습을 바라보고 있었던 거예요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0180 역사 앞에서 그는 약속했던 거예요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0189 역사의 거울 앞에서 물어보고 또 물어봤던 것이죠
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0192 역사 앞에 서 있었던 인물 정약용이었습니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0193 혹시 우리의 외교권을 강탈당했던 사건 아십니까
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0201 자 한번 가볼까요
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0207 저는 수업시간에 이런 이야기를 많이 합니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0208 얘들아 우리나라 팔아먹는데 앞장섰던 그 5명들이다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0210 내가 한번 한 명씩 이름을 부를 때마다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0214 오호 하시네요 좋아요 좋아
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0227 너희들이 나중에 사회에 나가서
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0229 책임을 져야 할 그 순간이 올 거다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0232 여기 있는 이 을사오적은 죽었어
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0233 죽었지만 그들은 죽지 못하지 않니
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0241 역사 앞에 바로 자신의 모습들을 보지 못했던 사람들이죠
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0243 여러분들은 혹시
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0244 역사 앞에 서 보신 경험들이 있으십니까
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0245 저는 역사 앞에 서 있었던 인물과
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0250 을사오적들은요 그 당시 엄청난 부귀영화를 누렸겠지만
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0252 역사 앞에 서 있었던 사람과
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0254 여러분들 저는 많은 사람들이
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0255 더 많은 사람들이 역사 앞에 서 있기를 바랍니다
+- 7LWc7YOc7ISx-RvMjD8Qmnws-0256 왜냐면 세상을 바꾸는 시간은

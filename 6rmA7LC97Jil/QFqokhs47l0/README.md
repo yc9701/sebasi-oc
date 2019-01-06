@@ -1,0 +1,129 @@
+### Sebasi Open Corpus: 나는 당신을 봅니다 | 김창옥 서울여대 기독교학과 겸임교수 | 명강연 강의 강연 | 세바시 118회
+
+- Speaker: 김창옥
+- Gender: 
+- Length: 7:18 in 116 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=QFqokhs47l0] (https://www.youtube.com/watch?v=QFqokhs47l0)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7LC97Jil-QFqokhs47l0-0004 교도소에서 강의를 좀 해 줄 수 있냐는 겁니다
+- 6rmA7LC97Jil-QFqokhs47l0-0005 그래서 오케이 좋습니다 한 번 가겠습니다 그래서 갔죠
+- 6rmA7LC97Jil-QFqokhs47l0-0006 여자 교도소인데요 여성분들이 왔어요
+- 6rmA7LC97Jil-QFqokhs47l0-0007 여러분 여성분들은 어떤 죄를 많이 지을까요
+- 6rmA7LC97Jil-QFqokhs47l0-0009 본인 경험 말고요
+- 6rmA7LC97Jil-QFqokhs47l0-0010 다 여기서 자기 경험이 나오는 거 거든요
+- 6rmA7LC97Jil-QFqokhs47l0-0012 여성 분들이 가장 많이 짓는 죄는 30 정도 사기범이랍니다
+- 6rmA7LC97Jil-QFqokhs47l0-0014 그래서 이제 그런 여성들을 뭐라고 부르나요
+- 6rmA7LC97Jil-QFqokhs47l0-0015 꽃뱀
+- 6rmA7LC97Jil-QFqokhs47l0-0017 예쁜 여성은 꽃뱀
+- 6rmA7LC97Jil-QFqokhs47l0-0020 어디를 가나 다 그런거죠
+- 6rmA7LC97Jil-QFqokhs47l0-0021 그런데 그 날 여기에 이렇게 색깔이 다른 분들이 있었어요
+- 6rmA7LC97Jil-QFqokhs47l0-0025 여성 살인의 공통점은 뭐냐면 근친 살인이라는 거에요
+- 6rmA7LC97Jil-QFqokhs47l0-0040 제가 어렸을 적부터 엄마가 아버지를 뭐라고 부르나 봤더니
+- 6rmA7LC97Jil-QFqokhs47l0-0041 주로 여보 누구 아빠 당신
+- 6rmA7LC97Jil-QFqokhs47l0-0042 이런 단어를 전혀 안 쓰셔요
+- 6rmA7LC97Jil-QFqokhs47l0-0044 인간
+- 6rmA7LC97Jil-QFqokhs47l0-0045 여러분 이 얼마나 가슴 따뜻한 단어입니까
+- 6rmA7LC97Jil-QFqokhs47l0-0046 인간적이다 이거 좋은 거잖아요
+- 6rmA7LC97Jil-QFqokhs47l0-0047 근데 인간 앞에 뭐가 들어갈까요
+- 6rmA7LC97Jil-QFqokhs47l0-0051 그러는 데에는 다 좀 사연이 있습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0053 저희 아버지는 청각 장애가 있으세요
+- 6rmA7LC97Jil-QFqokhs47l0-0054 3급 그래서 귀가 잘 안 들리셔요
+- 6rmA7LC97Jil-QFqokhs47l0-0055 근데 아버지는 결국 세상과 소통이 안 되는 걸 매우 힘들어 하시더니
+- 6rmA7LC97Jil-QFqokhs47l0-0065 몇 프로 하셨을까요
+- 6rmA7LC97Jil-QFqokhs47l0-0069 암바 이런 거 많이 하셨어요
+- 6rmA7LC97Jil-QFqokhs47l0-0073 그래서 어쩌면 혹시나 제 이야기가 즐겁다면
+- 6rmA7LC97Jil-QFqokhs47l0-0074 제 뒤에 있는 커텐 때문에 색깔이 더 아마 밝아보이는 게 아닌가
+- 6rmA7LC97Jil-QFqokhs47l0-0075 대비가 있잖아요
+- 6rmA7LC97Jil-QFqokhs47l0-0076 그런데 그 저희 아버지하고 어머니하고 그런 관계였어서
+- 6rmA7LC97Jil-QFqokhs47l0-0077 저는 엄마한테는 항상 미안합니다
+- 6rmA7LC97Jil-QFqokhs47l0-0078 왜냐면 아버지에게 엄마가 맞을 때 저는 도망다녔거든요
+- 6rmA7LC97Jil-QFqokhs47l0-0082 다섯 시간 연속 말씀이 가능하시거든요
+- 6rmA7LC97Jil-QFqokhs47l0-0083 계속 업데이트 되는 건 아니고요
+- 6rmA7LC97Jil-QFqokhs47l0-0084 하신 말씀 또 하시고 또 하시고
+- 6rmA7LC97Jil-QFqokhs47l0-0085 그래서 저는 아버지 때문에 술을 전혀 먹지 않습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0086 저희 누나 넷 형 하나가 있는데 형은 매우 많은 상처를 받은 거 같아요
+- 6rmA7LC97Jil-QFqokhs47l0-0087 이렇게 나쁜 술은 자기가 먹어서 없애버려야 되겠다는 거에요
+- 6rmA7LC97Jil-QFqokhs47l0-0089 누군가 피해자가 생기기 전에 먹어서 없애려고 하는 거죠
+- 6rmA7LC97Jil-QFqokhs47l0-0090 그래서 저는 이제 항상 아버지에 대해서는 약간의 트라우마가 있습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0092 약간 무서워하는 성향이 있습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0093 그래서 아버지하고 사이가 안 좋은 게 사실은 사실입니다
+- 6rmA7LC97Jil-QFqokhs47l0-0099 몇 년 전에 기적처럼 아버지한테서 전화가 왔습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0102 저 그게 아니구요 아버지가 누구누구씨 맞으시죠
+- 6rmA7LC97Jil-QFqokhs47l0-0104 아버지가 그 치과 병원에 여러 가지 치료를 받으러 오셨는데요
+- 6rmA7LC97Jil-QFqokhs47l0-0109 아버지가 되게 좋은 재료로 하시길 원하셔서
+- 6rmA7LC97Jil-QFqokhs47l0-0110 좀 많이 나왔는데 저보고 낼 수 있냐는 겁니다
+- 6rmA7LC97Jil-QFqokhs47l0-0116 제가 아버지 전화를 받은 적이 한 번도 없는데 긴장이 되더라고요
+- 6rmA7LC97Jil-QFqokhs47l0-0117 바꿔주세요 근데 정말 아버지가 받으시는 겁니다
+- 6rmA7LC97Jil-QFqokhs47l0-0118 귀가 안 들리시는 분들은 소리를 매우 크게 하시거든요
+- 6rmA7LC97Jil-QFqokhs47l0-0122 막둥이냐 아부지다
+- 6rmA7LC97Jil-QFqokhs47l0-0123 미안하다
+- 6rmA7LC97Jil-QFqokhs47l0-0128 아 짜증나 아부지 아들한테 미안하다고 하지마세요
+- 6rmA7LC97Jil-QFqokhs47l0-0129 그냥 돈 내라고 그러세요 힘들게 키웠으니까
+- 6rmA7LC97Jil-QFqokhs47l0-0131 제 소원은 고등학교 졸업하고 이 지긋지긋한 제주도를 뜨는 거였습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0136 막상 미안하다는 얘기를 들으니까
+- 6rmA7LC97Jil-QFqokhs47l0-0137 속이 상한다는 걸 그 날 처음 알았습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0139 아버지한테 드렸더니 윷놀이로 사회에 환원을 또 하시더라고요
+- 6rmA7LC97Jil-QFqokhs47l0-0140 결국 환원이거든요 삶이라는 거 자체가 그렇지 않습니까 여러분
+- 6rmA7LC97Jil-QFqokhs47l0-0142 막 중학교 애들 하는 말들
+- 6rmA7LC97Jil-QFqokhs47l0-0146 동물 나오고 난리가 아니에요
+- 6rmA7LC97Jil-QFqokhs47l0-0151 그래서 한 번 두 번 세 번 엄마 몰래 용돈을 드렸더니
+- 6rmA7LC97Jil-QFqokhs47l0-0154 뭐니뭐니해도 머니가 최고
+- 6rmA7LC97Jil-QFqokhs47l0-0156 소통은 머니다
+- 6rmA7LC97Jil-QFqokhs47l0-0161 아들이 집에 갔다가 서울 올라가는데 공항에 배웅 나오고 싶대요
+- 6rmA7LC97Jil-QFqokhs47l0-0164 엄만 한 마리의 외로운 표범이거든요
+- 6rmA7LC97Jil-QFqokhs47l0-0165 무리 생활을 하지 않으세요
+- 6rmA7LC97Jil-QFqokhs47l0-0166 늘 단독 사냥 들어가시죠
+- 6rmA7LC97Jil-QFqokhs47l0-0176 일단 대사가 적절치 않아요
+- 6rmA7LC97Jil-QFqokhs47l0-0183 아버지 엄마한테 얘기하지 마세요 조금이에요
+- 6rmA7LC97Jil-QFqokhs47l0-0185 별로 아버지랑 있는 게 좀 어색해서요
+- 6rmA7LC97Jil-QFqokhs47l0-0187 아버지랑 저랑 눈이 마주치면 저희 아버지는 절대 우시는 분이 아니시고
+- 6rmA7LC97Jil-QFqokhs47l0-0199 등 뒤로 핀 조명 하나가 보이는데 두 가지를 봤습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0202 그것도 2초 이상 보면 눈물 날 것 같아서 들어가 버렸죠
+- 6rmA7LC97Jil-QFqokhs47l0-0204 결혼 안 하신 분들은 뒷모습이 보이는 오빠하고 결혼하십시오
+- 6rmA7LC97Jil-QFqokhs47l0-0205 그리고 결혼하셨는데 배우자의 뒷모습이 보이신다면 처음 부부가 된 겁니다
+- 6rmA7LC97Jil-QFqokhs47l0-0208 그래서요 저 이제 좀 속이 아플 때 병원에 입원했었는데
+- 6rmA7LC97Jil-QFqokhs47l0-0209 갑자기 아버지 목소리가 듣고 싶은 거에요
+- 6rmA7LC97Jil-QFqokhs47l0-0213 엄마 아버지 좀 많이 건강 어떠셔
+- 6rmA7LC97Jil-QFqokhs47l0-0216 엄마 아버지 좀 바꿔 줘
+- 6rmA7LC97Jil-QFqokhs47l0-0220 아들이 어느 날 전화 바꿔 달라고 그러는데 전화를 받으시더라고요
+- 6rmA7LC97Jil-QFqokhs47l0-0223 제가 우리 아버지는 어쩜 저렇게 할 말이 없나
+- 6rmA7LC97Jil-QFqokhs47l0-0224 다 큰 아들한테 밥 먹고 차 조심하고 전화세 나온다 끊자가 뭐야
+- 6rmA7LC97Jil-QFqokhs47l0-0225 근데 어느 날 너무너무 제가 위하고 장이 안 좋아서 병원에 입원했는데
+- 6rmA7LC97Jil-QFqokhs47l0-0233 근데 갑자기 사람이 몸에 힘이 없는 상태에서 그 소리를 들어서 그런 지는 모르겠는데
+- 6rmA7LC97Jil-QFqokhs47l0-0236 사랑한다는 말을 할 때는
+- 6rmA7LC97Jil-QFqokhs47l0-0237 밥 먹으라는 말을 쓰는구나
+- 6rmA7LC97Jil-QFqokhs47l0-0241 영화 아바타에 보면은 그 사람들은 처음 만날 때 뭐라고 하냐면
+- 6rmA7LC97Jil-QFqokhs47l0-0243 I see you
+- 6rmA7LC97Jil-QFqokhs47l0-0244 나는 당신을 봅니다라고 번역이 되어 있습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0246 이 아바타들이 사랑해요 사랑합니다라는 말을 쓰지 않아요
+- 6rmA7LC97Jil-QFqokhs47l0-0248 I see you
+- 6rmA7LC97Jil-QFqokhs47l0-0249 나는 당신을 봅니다라고 얘기하죠
+- 6rmA7LC97Jil-QFqokhs47l0-0250 저는 아까 오종철선생님이 얘기하는 말을 들으면서
+- 6rmA7LC97Jil-QFqokhs47l0-0252 아 그건 정말 은행에 들어가라는 말이 아니구나 사랑한다는 얘기구나
+- 6rmA7LC97Jil-QFqokhs47l0-0253 밥 먹으라는 얘기는 사랑한다는 얘기구나
+- 6rmA7LC97Jil-QFqokhs47l0-0254 전화세 나온다 끊자라는 말은 여기 젊은 분들 그리고 저 같은 분들의 부모 세대들이 하시는 말로써는
+- 6rmA7LC97Jil-QFqokhs47l0-0257 여러분 혹시나 아버지하고 사이가 안 좋다면
+- 6rmA7LC97Jil-QFqokhs47l0-0259 아버지가 저한테 어색하지만 용기를 내서 미안하다고 얘기해서 좋아진 거 같아요
+- 6rmA7LC97Jil-QFqokhs47l0-0260 여러분 봄이 오기 전에 오늘 이 이야기를 듣고 마음에 미안한 사람이 있으시면
+- 6rmA7LC97Jil-QFqokhs47l0-0261 그 사람들한테 미안하다고 한 번만 용기를 내서 얘기해 주십시오
+- 6rmA7LC97Jil-QFqokhs47l0-0262 그리고 남한테는 너무 잘하는데 자기한테는 잘 안 하는 사람들이 있거든요
+- 6rmA7LC97Jil-QFqokhs47l0-0263 그런 사람들은 본인 핸드폰에다가
+- 6rmA7LC97Jil-QFqokhs47l0-0264 미안하다라고 쓰고 수신자 번호를 자기 걸 치면 돌아옵니다
+- 6rmA7LC97Jil-QFqokhs47l0-0265 그리고 그 핸드폰을 딱 봤을 때 눈물이 나는 때가 있대요
+- 6rmA7LC97Jil-QFqokhs47l0-0266 그러면 우리는 요즘 좀 힘들었다는 뜻이래요
+- 6rmA7LC97Jil-QFqokhs47l0-0267 그리고 그 눈물은 몸 안에 있는 스트레스 호르몬을 몸 밖으로 밀어내는 효과를 갖고 있답니다
+- 6rmA7LC97Jil-QFqokhs47l0-0268 여러분 늘 강의에서 제가 하는 건데 이거 하나 소개하고 마칠려고요
+- 6rmA7LC97Jil-QFqokhs47l0-0272 우리 이렇게 한 번 하고 마칠까요
+- 6rmA7LC97Jil-QFqokhs47l0-0273 이런 거는 안 했으면 좋겠습니다
+- 6rmA7LC97Jil-QFqokhs47l0-0282 가끔 한 번 미안하다는 마음이 드시면
+- 6rmA7LC97Jil-QFqokhs47l0-0283 저희의 삶의 소통을 위해서
+- 6rmA7LC97Jil-QFqokhs47l0-0284 어색하지만 용기 내서 미안하다고 한 번만 얘기해 줘도 좋을 것 같고
+- 6rmA7LC97Jil-QFqokhs47l0-0285 그리고 가끔은 힘든 저희 자신이나 주변 사람들에게
+- 6rmA7LC97Jil-QFqokhs47l0-0286 한 번만 미안하다고 얘기해 주고
+- 6rmA7LC97Jil-QFqokhs47l0-0289 좋은 봄에 건강하시고 행복하십시오 고맙습니다

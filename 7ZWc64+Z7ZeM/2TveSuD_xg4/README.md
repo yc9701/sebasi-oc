@@ -1,0 +1,120 @@
+### Sebasi Open Corpus: (Kor, Eng) 세바시 97회 재미있고 의미있는 일을 하면... | 한동헌 마이크임팩트 대표
+
+- Speaker: 한동헌
+- Gender: 
+- Length: 4:57 in 107 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=2TveSuD_xg4] (https://www.youtube.com/watch?v=2TveSuD_xg4)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0005 반갑습니다
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0007 사실 제가 할 수 있는 이야기는 많지 않은 것 같아요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0009 삶의 진리나 우주의 원리들을 파악하게 되고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0012 재미있고 의미 있는 일을 하면 돈이 따라온다입니다
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0013 끝에 물음표랑 느낌표가 같이 있어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0014 재미있고 의미 있는 일을 하면 돈이 따라오나요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0016 재미있고 의미 있는 일과 돈이 어떻게 연결되는 건지 되게 궁금하더라구요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0017 재미있고 의미 있는 일을 해도 굶는 사람 정말정말 많이 봤거든요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0018 재미있고 의미 있는 일을 해서 돈이 따라오는 게 아니라
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0021 어느 게 진실일까요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0024 보스턴 컨설팅 그룹이라는 경영 컨설팅 회사를 다녔었어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0029 연봉이 높은 것은 말할 것도 없고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0036 새벽까지 일을 해야 되고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0042 아 내가 이 세계가 왜 좋은 거지 라는 생각을 하게 됐어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0043 이 세계가 어찌 보면 매트릭스 안의 세계가 아닐까 하는 생각이 들더라고요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0045 진짜 안 좋은 세계지만 진짜 세계가 있잖아요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0049 내가 좋아서 좋다는 것인가
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0050 아니면 남이 좋다고 해서 세상이 좋다고 해서 좋은 것인가
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0051 이런 본질적인 질문을 던지게 되었죠
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0055 제가 사회인이 되고 대학 들어오고 이러면은 경쟁이란 건 없을 줄 알았거든요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0058 또 경쟁을 하기 시작하는 거예요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0059 근데 이 경쟁은 도대체 언제 끝날까 하는 생각이 들더라고요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0062 차 경쟁하고 아파트 경쟁하고 배우자 경쟁하고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0064 도대체 이 끝 없는 경쟁은 언제까지 계속될까 하는 생각이 들더라고요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0072 그 선고 앞에 서고 나니까 정말 모든 게 다 하얘지고 사라지더라고요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0073 정말 그 죽음과 삶 이것 말고는 아무것도 존재하지 않는 이야기였었어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0074 정말 중요한 게 무엇인지 보게 되고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0077 끝을 생각해라
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0078 너의 마지막을 생각해라
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0079 너의 마지막 어떤 모습일까
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0080 정말 열심히 사시고 사회적으로 경제적으로 정말 열심히 하신 분인데
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0081 마지막에 하시는 말씀이 그런 말씀이시더라고요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0083 이적이 나와서 공포 납량 특집이었어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0084 제일 무서운 노래 부르라고 하더라고요 무서운 노래
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0086 난 참 바보처럼 살았군요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0087 정말 죽기 직전에 눈 감기 직전에
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0093 전 경영학과였어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0095 CEO
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0096 뭐 하는 지도 모르고 어떻게 되는 지도 모르지만
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0097 무조건 CEO가 되고 싶다고 하거든요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0103 다음에
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0105 교수님으로 가시는 경우도 있고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0108 그렇게 창업을 해서 성공을 해서 수백억 수천억을 벌었어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0110 그 다음은 무엇일까요 그 다음
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0113 수백억 수천억하고는 비교도 안 되는 정말 엄청난 돈을 버신 분이죠
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0115 커리어 패스에 보면
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0119 근데 요즘 젊은 청춘들 보면 그런 꿈을 가진 사람 굉장히 많아요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0121 근데 한 가지 조건이 있죠 조건
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0122 나중에 성공하면 돈 많이 벌면 그죠
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0123 왜 지금은 안 되는 거지
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0128 시장도 변하고 경쟁도 변하고 조직도 변하는데
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0129 너는 무엇을 변화시키고 있느냐
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0130 이런 질문을 던지더라고요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0137 정말 어리석은 생각이죠
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0140 어떻게 하면 돈을 많이 벌 수 있을까 어떻게 하면 돈을 많이 벌 수 있을까
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0143 어떻게 하면 재미있고 의미있는 일을 할 수 있을까 였어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0149 많은 사람들이 마이크로 임팩트라고도 읽고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0154 만들어 내고 전파하는 것을 저희의 비전으로 하고 있는데요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0160 그죠 진짜 없어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0161 그런 거를 파는 것처럼 하는 것처럼 보이지만은
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0164 어떻게 사업을 할 것이냐
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0165 잘 모르겠습니다
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0168 다리에 테이프를 붙여놓고 이거를 빨리 떼느냐 천천히 떼느냐
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0169 뭘 택하실래요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0173 그냥 마음속에 품고 살아가시는 분들이 있어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0181 너 하는 거 그만두지 말고 재밌게 한번 해 보자
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0183 하면서 이런 식의 콘서트처럼 해 보자 라는 생각을 해서
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0184 우리나라에서 가장 큰 데가 어디냐 그래서 찾아보니까
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0191 감당하기 힘든 돈이었죠
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0193 어떻게 할 지도 모르겠는데
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0194 정말 그때 봤으면 누구나 봐도 욕했을 굉장히 어리석은 결정이었어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0196 그때 그러지 않았다면 저는 이 자리에 없었을 겁니다
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0203 뭐 이런 이야기들 해주시면서
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0205 또 박원순 시장님
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0210 그 돈 없는 대학생들 한 200명 정도가
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0212 이걸 보면서 우리가 정말 사람을 변화시킬 수 있구나
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0213 이런 생각들을 하게 됐어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0214 친구들이 굉장히 재미있고 의미있는 일인 것 같다
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0215 근데 이제 물어보죠 꼭 물어보는 게 있죠
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0216 근데 돈은 좀 돼
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0220 근데 이렇게 있어 가지고 어떻게 해야 되나 고민을 하고 있었는데
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0224 딱 끝나고 나서
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0227 와가지고 같이 하자 같이 하자 이런 식으로 얘기를 하면서 크게 만들기 시작하죠
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0228 몇 천만 원 이상 되는 거는 꼭 제안서 작업을 거쳐야 되거든요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0231 이런 식으로까지 얘기를 하고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0233 그게 없는데도 불구하고 사람들이 와서
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0238 이런 콘텐츠에 대한 반향들이 일어나기 시작했죠
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0242 안정적으로 계속 진행을 해서 큰 금액을 확보하게 되었고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0243 최근에는 저번 주에 끝났는데 전국 12개 지역을 돌면서
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0247 7만 명 들어가는 곳인데 계속 얘기하고 있거든요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0254 어떤 명사들은 자기를 매니지먼트해 달라
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0266 애플리케이션 만들기 강의시키고
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0280 어떻게 하면 재미있고 의미있는 일을 할 수 있을까
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0282 이런 고민들이 만들어 냈죠
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0283 재미있고 의미 있는 일을 하면 돈이 따라온다
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0285 근데 몇 가지 조건이 있어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0292 아무리 재미있고 의미있는 일이 있어도
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0293 그냥 다 고만고만하면 아무도 알아주지 않아요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0296 세 번째는 비즈니스가 아니라 코어 핵심에 집중하는 거예요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0303 여기서 이야기는 아직 끝나지 않았어요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0304 저희가 사업을 하면서 가장 어려운 것 중 하나가
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0306 여기가 저희가 입주한 광화문인데
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0309 뭐가 필요하니 장소가 필요합니다
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0316 근데 이런 건 일이 아니잖아요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0317 너무 신기하게도 그걸 제가 본업으로 하고 있는 거예요
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0328 제가 단순히 비즈니스를 만들고 돈을 쫓는데 집중을 했더라면
+- 7ZWc64+Z7ZeM-2TveSuD_xg4-0334 감사합니다

@@ -1,0 +1,183 @@
+### Sebasi Open Corpus: 원하는 것을 얻으려면 미쳐야 한다 | 한유정 할리우드 미술총감독 | 동기부여 도전 강연 강의 | 세바시 629회 | (Kor, Rus)
+
+- Speaker: 한유정
+- Gender: 
+- Length: 10:37 in 170 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=bMz2ckG4VGE] (https://www.youtube.com/watch?v=bMz2ckG4VGE)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0002 안녕하세요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0003 안녕하세요 한유정입니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0004 할리우드 미술 총감독 한유정입니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0006 원하는 것을 얻으려면 미쳐야 한다 인데요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0007 제가 할리우드에서 같이 일했던 분들 사진들을 몇 개 모아 봤습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0008 벤 스틸러 그 옆에 스탠 리 같은 경우는
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0009 여러분들 좋아하시는 스파이더맨 엑스맨 이런 것들을 다 창조하신 분입니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0010 배우보다 더 훌륭하신 분이죠
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0011 그리고 제임스 코번 쥬라기 공원의 제프 골드브룸
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0013 여러분들 잘 아시는 로스 우디 해럴슨 앤디 가르시아 이런 분들과 같이 열심히 일을 했습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0014 제가 우연한 기회에 무대 디자인이란 분야를 중학교때 들었는데요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0015 우연히 들은 그 단어 한 마디 거기서 오는 강렬한 느낌 하나만으로
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0016 그 자리에서 제 미래를 결정해 버렸습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0017 무대 디자이너가 되겠다고
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0018 근데 그렇게 결심을 하고나서 막상 돌아보니까
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0019 무대 디자인에 대해서 아는 사람도 없고
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0020 지금처럼 인터넷이 있는 것도 아니고
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0022 미국은 무대 디자인이 굉장히 발달돼 있다 이 정도 얘기만 들었어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0023 그래서 그 날부터 저는 이제 무대 디자인을 하러 아메리카에 가야겠다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0026 부모님이 저를 보내주셔야 되잖아요 그래서 부모님을 열심히 졸랐어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0028 당연히 반대하셨죠
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0029 저희 아버지는 또 굉장히 보수적인 분이셨거든요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0030 근데 반대를 하셨지만 저는 막무가내로 막 조르니까
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0031 저희 아버지가 저를 설득하신게
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0032 일단은 대학교부터 가봐라
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0034 대학교 들어갔으니까 졸업은 해봐라
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0035 졸업 했습니다 저 좀 보내주세요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0037 졸업하느라 수고했다 이제 시집가서 남편하고 유학가라
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0038 이렇게 바로 결론이 나셨어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0039 그래서 그때 제가 엄청난 배신감을 느끼고 또 실망을 하여서
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0043 그 생활을 제가 한 6개월을 반복을 했어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0044 근데 반복을 하다 정말 어느 날 갑자기 턱 든생각이 있었는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0045 근데 내가 미국을 가려면 왜 부모님의 허락을 받아야 되는 거지
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0046 이런 생각이 드는 거예요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0047 근데 생각을 해보니까 답이 하나였어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0048 제가 자립 능력이 없었기 때문에 그런 거예요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0049 근데 그러면 내가 자립 능력을 키우면 되는 거 아닐까
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0052 이제 어떻게 하면 취직을 할까
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0054 제가 원하는 무대 디자인을 하기에 최대로 가까운 그런 분야에서 일을 하고 싶었고
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0055 제 전공이었던 인테리어 디자인을 살려서
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0056 그래 그러면 인테리어 디자이너가 되자
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0057 그러면 돈은 최대로 많이 주는 곳에 가야 한다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0059 그 당시에는 대기업들이 지금도 그렇지만 가장 돈을 많이 줬을 때니까
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0061 근데 뜻이 있는 곳에 길이 있다고
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0062 진짜 제가 정말 열심히 준비를 하니까 대기업에 합격을 해버렸어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0066 그때 인테리어 디자이너로 열심히 회사에서 일을 했습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0068 어느 정도 인정을 받고 편해지는 시점이 오더라구요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0070 꿈이고 뭐고 회사를 관두기가 싫은 거예요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0072 그때 제가 들었던 생각이
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0074 내 꿈이 있었기 때문에 그걸 쫒아가려다 여기까지 왔는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0075 여기서 편하다고 관두면은 나는 영원히 내 꿈을 잡아볼 기회는 없겠구나
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0076 이런 생각이 들어서
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0077 다시 마음을 다잡고 열심히 준비를 하기 시작했는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0078 저같은 경우는 미술을 전공했고 또 무대 디자인은 디자인과이기 때문에
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0079 포트폴리오를 만들어야 됐어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0080 그래서 회사에서 퇴근을 하고 집에 오면은
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0081 저는 무조건 방문을 걸어 잠그고선 부모님 몰래 포트폴리오를 준비했습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0083 드디어 USC에서 제가 합격통지서를
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0084 글씨가 잘 안 보이지만 합격 통지서가 이렇게 날라옵니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0086 저를 미국에 보내주세요 가 아닌 자 이제 저는 가겠습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0087 이렇게 통보를 했습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0088 근데 의외로 저희 아버지가
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0089 제 힘으로 처음부터 끝까지 이뤄낸 걸 보셔서 그런지
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0090 반대를 안하시고
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0091 그래 그럼 네가 정말 가고 싶으면 가거라 라고 말씀을 하셨어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0092 그래서 저는 드디어 미국 유학을 떠나게 됩니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0093 근데 여러분도 아시다시피
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0096 대출을 받아서 그 친구들이 학자금 대출을 받아서
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0097 그 친구들이 그거를 평생 갚아 가면서 그렇게 학교를 다닙니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0098 그리고 나서는 부모님한테 뭔가 도움을 청하는 걸 굉장히 창피해하는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0099 사실 저희는 어떤가요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0100 부모님이 학비 대주시는 거 당연하구요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0101 심지어는 30대 40대가 되서도 만약에 시집 장가를 안 가신 분들은
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0102 생활비 한푼 안보태시면서 부모님 옆에 딱 붙어 계시잖아요 그죠
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0104 제가 원하는 길을 가기 위해서 이렇게 독립을 하게 됐는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0105 사실은 저도 미국 유학가기 전에 부모님한테 한 가지 부탁을 드렸었어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0107 왜냐면 제가 자리를 잡는 시간이 필요하지 않겠습니까 라고 했는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0109 근데 저에게는 그 일 년이라는 시간도 사실은 굉장히 큰 사치였던게
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0110 미국 간 지 몇 달만에 바로 IMF 가 터져갖고요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0112 너한테 도저히 지원을 해 줄 수가 없다 지금
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0113 정말 10년이란 세월을 싸워갖고 저는 힘겹게 갔는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0114 이렇게 다시 한국으로 돌아가야 되는 건가 망연자실 할 때
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0116 저희 교수님이 그러시더라구요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0117 너 장학생이었다고 몰랐냐구
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0121 어떻게 기적적으로 미국에 제가 머물게 됐어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0124 제가 그래서 그때 조교도 하게 됐고요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0125 또 USC 내에 있는 소품실에서도 일을 하게 됐습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0126 그때 이런 소품실에서 일을 했어요 꼭 귀신 나올 것 같은 소품실인데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0127 이런 곳에서 제가 일을 하면서 생활을 했었습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0129 내가 원하는 것을 얻기 위해서는 물 불 가리지 않는다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0130 뭐 그런 것이죠
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0131 여러분들 뭔가에 미쳐 본 적 있으세요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0133 대부분이 그런 미친짓은 절대 하지 않는다 라는 표정으로 절 쳐다보고 계신데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0137 지금 여기 앉아 계신 분들 최소한 반 이상이 남자분들 같으신데요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0138 남자분들 좋아하시는 여자분 생기시면 대부분들 다 미치십니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0139 그렇지 않으세요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0142 근데 그런 짓 열심히 하시는 분들
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0143 또 게임에 미치신 분들도 계시지 않나요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0144 아니면 음주 가무에 미치셨다던가 아니면 현재에 미쳐계신 분들
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0145 뭐 다 좋습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0146 그 말은 저희 안에는 뭔가에 미칠 수 있는 그런 잠재력이 다 있다는 소리입니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0147 근데 이 엄청난 힘을 발휘할 수 있는 이 잠재력
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0148 뭔가에 미친다는 잠재력을 왜 일이나 공부에는 적용할 수가 없는 걸까요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0149 만약에 저희가 이런 엄청난 잠재력을
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0150 내가 정말 좋아하는 일을 발견을 해서 거기다가 적용을 한다면 어떨까요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0151 저에게도 제가 무대 디자인을 하면서
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0152 나 정말 무대디자인에 미쳤었구나 라고 생각했던 적이 있습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0153 USC 대학원 시절에
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0156 배우들은 거기 무대에 서게 되고 의상 조명 다 그래서 굉장히 중요한 세트입니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0158 여기에 또 제가 조교로 일하면서 미국 학생들에게 페인팅을 가르쳐 줬었어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0159 그리고 또 그 다음에 소품실에서 일을 하면서
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0160 이렇게 여러가지 제가 학교에서 관여를 하다 보니까
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0161 한 대 여섯 개의 타이틀을 가지고선 굉장히 열심히 일을 했었는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0164 근데 대부분 제 친구들 제 동료들은 다 그걸 안 하겠다고 했어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0167 이 궁금한 마음에 그 미팅들을 나갔었는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0168 한 작품을 하나 해줬더니
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0169 그 다음에 이게 소문이 나가지고 학생 작품이 봇물처럼 들어오는 거예요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0170 그런데 여러분 아시는지 모르겠지만 학생 작품은 대부분이 무료봉사입니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0171 돈도 못 받지만 심지어는 제 돈이 들어가요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0173 제가 막 돌아다니면서 여러가지를 찾으러 다녀야 되는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0174 그 차비 기름 값 제 돈이구요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0175 그 돌아다니면서 먹는 밥 값 그것도 제 돈입니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0176 이렇게 사비가 들어가면서 해야되는 일들인데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0177 막 제안이 들어왔을 때 저는 이미 학교에서 하고 있는 책임이 막중했기 때문에
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0178 사실은 거절해야 되는 게 맞는데 일단 미팅은 나갑니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0180 절대 한다고 하지 말아야지 어떻게 거절을 할까
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0181 거절 하는 방법까지 다 생각해 놓고 나갔어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0183 이미 하겠다 그러고 돌아오고 있는 거예요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0185 너 미쳤구나 이 많은 걸 네가 어떻게 하려고 하니 너 미쳤구나
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0186 근데요 저 맞습니다 미쳤었습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0188 이 많은 일을 하면서요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0190 이 학생 작품들을 열심히 해줬습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0191 이것 말고도 더 많은 작품들이 있었지만 지금 이 정도를 챙겨왔는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0192 근데 이렇게 뭔가에 미치지 않으면요 이렇게 힘든 짓들을 절대 하지 못합니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0193 지금 이렇게 돌이켜서 생각해 보면은
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0194 돈도 안되고 제가 돈도 없고 시간도 없는 가난한 유학생이었는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0195 어쩜 그렇게 돈도 안되는 일을 많이 했는지 참 신기해요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0196 근데 사람이 뭔가에 미치면은 그렇게 됩니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0197 누가 옆에서 아무런 말을 안 해도 혼자 알아서 밤새게 되요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0198 그리고 밤새게 되고 몸은 피곤해 죽겠는데 너무너무 행복한 거예요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0199 제가 할리우드에서 여러 사람들하고 일을 해봤는데요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0200 그 중에서는 여러가지 백그라운드를 가지고 있는 사람들이 있었습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0201 어떤 사람은 원양어선을 타다가 온 사람도 있고요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0202 어떤 사람은 뉴욕에서 경찰관을 하다 갑자기 미술부로 들어온 사람도 있고 그래요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0204 이 친구가 저한테 자기가 어떻게 할리우드에서 일을 하게 됐는지 그 얘기를 해줬었습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0205 이 사람은 18살 때 자기가 아무런 학력도 없고 연고지도 없는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0206 할리우드에서 너무 일이 하고 싶었대요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0208 파라마운트사 앞에 가서 그냥 이러고 서 있는 거예요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0209 매일 출근 도장 찍으면서 똑같은 자리에 똑같이 서 있었대요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0212 이러다 보니까 어느 날 아주 조그만 기회가 이 친구한테 주어진 거예요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0214 지금 32년 째 할리우드에서 굉장히 유명한 페인터로 일을 하고 있습니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0215 뭔가 기회를 잡는다는 것 또 거기서 경험을 쌓는다는 것
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0216 내가 원하는 분야의 전문가가 된다는 것은
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0217 이렇게 직접 몸으로 부딪쳤을 때만 가능한 일입니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0218 근데 제가 디지털 세대 젊은 세대들한테 조금 아쉬운 점은
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0219 여러분들이 인터넷이 너무 발달한 세상에서 살다 보니까
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0220 인터넷에서 자신이 원하는 정보를 다 얻어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0221 내가 관심있는 분야까지도 그걸로 먼저 검색을 해 보십니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0222 그러다 보니까 간접경험을 굉장히 많이 하게 되는데
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0223 어느 순간 이 간접경험이 쌓이면
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0224 이게 마치 내가 이걸 경험한 듯한 그렇게 착각을 하는 순간이 와요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0226 포기할 수도 있고 아니면 여긴 나랑 맞아 안 맞아
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0227 직접 해 보지도 않았는데 간접 경험으로 자기의 적성 테스트까지 다 끝낼 수가 있어요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0228 근데 내가 뭔가 좋아하는 일에 도전을 한다는 건요
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0229 야 너 미쳤냐  이런 소리 들을 정도로 무모할 때도 있고
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0230 부딪치고 깨지고 피가 터져나서
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0231 야 이 미친놈아 그만 좀 해라 이런 소리 들으면서도
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0232 너무 좋아서 너무 행복해서
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0233 난 이걸 계속하고 싶다고 그런 것입니다
+- 7ZWc7Jyg7KCV-bMz2ckG4VGE-0234 여러분들도 오늘부터 뭔가 좋아하는 일에 미쳐보셨으면 좋겠습니다

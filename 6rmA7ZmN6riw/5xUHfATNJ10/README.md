@@ -1,0 +1,158 @@
+### Sebasi Open Corpus: (Kor, Jpn, Chn) 세바시 353회 패션이 인간을 만드는 5가지 방법 | 김홍기 패션큐레이터
+
+- Speaker: 김홍기
+- Gender: 
+- Length: 7:6 in 145 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=5xUHfATNJ10] (https://www.youtube.com/watch?v=5xUHfATNJ10)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7ZmN6riw-5xUHfATNJ10-0003 두번째 시간입니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0004 오늘 자리가 꽉 찼어요 은혜롭습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0007 자 우리 옷이 날개다 이런 말 많이 하죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0008 어떤 옷을 입는가에 따라서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0009 그날 던지는 메세지의 느낌이 달라지잖아요 그죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0010 캐주얼한 옷을 입었을때
+- 6rmA7ZmN6riw-5xUHfATNJ10-0013 그렇게 옷은요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0014 어떤 한 사람의 느낌을 창조하는 힘을 갖고 있습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0016 발명 그렇죠 영어로 뭐라고 쓰여 있어요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0022 어찌보면 정말 핵심은 여기 있는게 아닐까요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0023 세상에 하나밖에 없는 거
+- 6rmA7ZmN6riw-5xUHfATNJ10-0024 이전에 없던 거 만들어 내는게 발명이다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0026 그 발명 이후에 뭐가 있냐구요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0029 그것이 우리의 문화가 되려면
+- 6rmA7ZmN6riw-5xUHfATNJ10-0030 많은 사람들이 그 발명품을 채택하고 써야 됩니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0033 유행을 만들지 못하는 발명은 의미가 없는 것입니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0034 자 그런 의미에서 저는 오늘 여러분들에게
+- 6rmA7ZmN6riw-5xUHfATNJ10-0035 저 패션의 역사를 통해서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0036 이 옷이라고 하는 발명품이
+- 6rmA7ZmN6riw-5xUHfATNJ10-0038 어떠한 변화들을 만들었는가
+- 6rmA7ZmN6riw-5xUHfATNJ10-0040 자 아주 그림 속에 엣지있는 언니가 보입니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0046 이 그림속에 여인이 입고 있는 옷은 스톨라라고요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0047 로마 여성들이 입고 있는 옷 입니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0050 그게 없다 보니까
+- 6rmA7ZmN6riw-5xUHfATNJ10-0052 딱 네 장의 천으로 되어 있어요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0053 앞판 뒷판 그리고 허리를 감싸는 천
+- 6rmA7ZmN6riw-5xUHfATNJ10-0055 블링블링하게 보여줄 수 있는 끈 두 개만 딱 있으면 됩니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0058 피뷸라라고 하는 아마 여성분들은 잘 아시죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0059 오늘날 현대적인 여성의 악세사리
+- 6rmA7ZmN6riw-5xUHfATNJ10-0061 저 피뷸라를 가지고서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0063 저렇게 해도 재단하지 않았어도 참 예쁩니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0065 아마도 저 옷에는 인간의 신체를 가장 아름답게 드러내게 해주는
+- 6rmA7ZmN6riw-5xUHfATNJ10-0066 어떤 비결 전략이 담겨 있기 때문일거에요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0068 이 세가지가 결합이 되면
+- 6rmA7ZmN6riw-5xUHfATNJ10-0069 자 우리의 역사에서 새로운 아주 멋진 미개념이 나오게됩니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0070 그게 뭐냐하면 바로 엘레강스입니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0072 엘레강스
+- 6rmA7ZmN6riw-5xUHfATNJ10-0076 무슨 뜻인가 하면은
+- 6rmA7ZmN6riw-5xUHfATNJ10-0077 굉장히 심혈을 기울여서 선택한다 라는 뜻이 있습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0079 우아함이라고 하는 것은
+- 6rmA7ZmN6riw-5xUHfATNJ10-0080 어떤 상태를 나타내는 형용사가 아니라
+- 6rmA7ZmN6riw-5xUHfATNJ10-0084 우리가 우아한 인간이 되기 위해서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0090 자 이 시골에서 지금 농촌이죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0091 여기서 많은 농민들이 춤추고 있습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0094 자 우리 여기 그림 속에 오빠 한번 봐주세요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0095 이야 스키니 패션의 종결자야
+- 6rmA7ZmN6riw-5xUHfATNJ10-0098 이런 스키니가 왜 중세 말이 되면 탄생했을까
+- 6rmA7ZmN6riw-5xUHfATNJ10-0099 저도 오늘 당장 스키니 입고 있잖아요 그쵸
+- 6rmA7ZmN6riw-5xUHfATNJ10-0104 중세를 지배하던 힘이 뭐에요 기독교였죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0105 그 기독교가 조금씩 허물어지기 시작했던 시기입니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0110 현실적인 사람이 되어가는거에요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0111 이 땅에 발을 딛고서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0112 좀더 뭔가 내가 현실적인 삶을 살고
+- 6rmA7ZmN6riw-5xUHfATNJ10-0118 그래서인지 몰라도
+- 6rmA7ZmN6riw-5xUHfATNJ10-0126 이 부분을 조금 더 실체적 진실과 다르게
+- 6rmA7ZmN6riw-5xUHfATNJ10-0131 현실에 대해 눈뜰 수 있는 인간
+- 6rmA7ZmN6riw-5xUHfATNJ10-0133 그런 용기를 가진 인간으로 만듭니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0134 도발이라는 단어는
+- 6rmA7ZmN6riw-5xUHfATNJ10-0136 우리가 어떤 현실에 대해서 도발한다 라고 하는 것은
+- 6rmA7ZmN6riw-5xUHfATNJ10-0144 그럴수 밖에 없어
+- 6rmA7ZmN6riw-5xUHfATNJ10-0155 새로운 시대인 저 르네상스 시대에는
+- 6rmA7ZmN6riw-5xUHfATNJ10-0159 이렇게 르네상스를 넘어서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0162 지금 그림 속에 보여지는 저 할머니가 입으신 옷
+- 6rmA7ZmN6riw-5xUHfATNJ10-0163 아주 이쁘죠 그죠 이뻐요 6키로짜리
+- 6rmA7ZmN6riw-5xUHfATNJ10-0165 자 그런데 저 할머니가 입고 있는
+- 6rmA7ZmN6riw-5xUHfATNJ10-0166 저 옷의 소재가 뭐냐하면 중국산 실크에요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0176 그 옷을 만드는 재료가 희귀하고
+- 6rmA7ZmN6riw-5xUHfATNJ10-0178 결국 뒤집어 말하면 어떤 물품을 가진 자가
+- 6rmA7ZmN6riw-5xUHfATNJ10-0181 그 자체로 보여준다라는 거죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0182 그걸 인간이 역사속에서 배우게 된지가 얼마되지 않아요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0184 이 당시에는 굉장히 중국풍 중국 트렌드가 유행을 합니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0191 지리적인 경계를 넘어서 온
+- 6rmA7ZmN6riw-5xUHfATNJ10-0192 저 외국의 물품들이
+- 6rmA7ZmN6riw-5xUHfATNJ10-0196 오늘도 우리들에게 인기를 끌고 옷에 나타나요 그죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0197 그 패션 브랜드 중에 그런 브랜드가 있어요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0198 돌쇠야 너 거기에 가봤냐  뭐 이런 브랜드가 있는데
+- 6rmA7ZmN6riw-5xUHfATNJ10-0205 하나같이 여자들은 옷을요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0208 그게 뭐냐 바로 저 인도에서 넘어 온 숄이었습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0209 요걸 해야 엣지 있는 언니가 되는거라
+- 6rmA7ZmN6riw-5xUHfATNJ10-0210 자 그런데 이거를 했는데
+- 6rmA7ZmN6riw-5xUHfATNJ10-0211 자 이 그림 얘기는 안 할 수가 없어요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0214 저 다비드의 부인이었습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0217 왜 맞았을까요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0220 이 사모님요 지금 인터넷에다가 아마 이렇게 막 썼을거에요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0227 그냥 단순한 발명이 아니라 뭐가 돼요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0228 사람들이 그것을 채택하면서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0230 공유할 수 있는 기억을 만듭니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0231 그것을 우리는 혁신이라고 합니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0232 그 혁신은 다른 것이 아닙니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0238 그리고 저 프랑스 사회안에서 너무 많은 수요가 생기다 보니까
+- 6rmA7ZmN6riw-5xUHfATNJ10-0239 이걸 가지고 이제 프랑스 자체내에서 생산하기 위한
+- 6rmA7ZmN6riw-5xUHfATNJ10-0241 이것이 바로 하나의 발명품이
+- 6rmA7ZmN6riw-5xUHfATNJ10-0242 그 발명을 넘어서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0245 이것 뿐만이 아닙니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0248 저 그림에 보면 어떤 여자 두 분이 보이죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0249 뭘 입고 있어요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0252 저 당시에 여자가 바지를 입는다는 것은 혁명이었습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0254 자 이 그림속에 한 여인이 어떤 옷을 입고 있습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0260 자 그런가 하면 일본의 제품들이 또 수입되면서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0262 이것 또한 하나의 변혁이었습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0263 여성들은 들고 일어섭니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0264 어떻게 하면 내 몸을 편하게 할 수 있을까
+- 6rmA7ZmN6riw-5xUHfATNJ10-0266 할렘 바지를 자기들이 입을 수 있게끔 만든
+- 6rmA7ZmN6riw-5xUHfATNJ10-0270 바지를 입기까지 그 혁신이 일어나기까지
+- 6rmA7ZmN6riw-5xUHfATNJ10-0273 하지만 이것이 아까전에
+- 6rmA7ZmN6riw-5xUHfATNJ10-0277 사용 상황이 바뀌면 거기서 혁신이 일어나는 것이고
+- 6rmA7ZmN6riw-5xUHfATNJ10-0278 자 예전에는 절대 여성이 입을 수 없던 옷인데
+- 6rmA7ZmN6riw-5xUHfATNJ10-0279 성별을 가능케 했습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0280 성의 격차를 경계를 넘었습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0281 그 두 가지가 가능해지면
+- 6rmA7ZmN6riw-5xUHfATNJ10-0282 혁신이 일어난다 라고 하는 사실을 아셔야 됩니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0288 그렇죠 코코샤넬입니다 그렇죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0289 1930년대 저 샤넬의 모습입니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0292 그렇죠 모조진주입니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0294 왜 저 사람이 패션의 혁명가인줄 아십니까
+- 6rmA7ZmN6riw-5xUHfATNJ10-0296 보석을 사용하는 목적에 대해서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0297 다시 정의를 내렸기때문이에요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0298 옛날 사람들은 보석을 쓰는 것을 왜 썼는냐
+- 6rmA7ZmN6riw-5xUHfATNJ10-0301 여자가 보석을 사용하는 것은
+- 6rmA7ZmN6riw-5xUHfATNJ10-0303 아름다워지기 위한 것이다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0304 이것은 두 개의 별개의 문제다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0306 그렇게 하기까지는 바로
+- 6rmA7ZmN6riw-5xUHfATNJ10-0308 저 인조 진주도 한 몫을 하죠
+- 6rmA7ZmN6riw-5xUHfATNJ10-0311 정서 자체를 확 바꾸는
+- 6rmA7ZmN6riw-5xUHfATNJ10-0315 자 그 당시에 저런 그 여인들의 몸을 편하게 하던
+- 6rmA7ZmN6riw-5xUHfATNJ10-0319 이렇게 혁신이란 어느 발명 하나로 끝나는 것이 아니라
+- 6rmA7ZmN6riw-5xUHfATNJ10-0322 거기에 동참할 때 혁신이 일어나는 겁니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0323 이제 강의를 마칠 때가 되었습니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0326 지금 오늘이 단풍 마지막 날이래요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0329 저 덩쿨들은 어떻게 저 높은 벽을 장벽을 넘어갈까
+- 6rmA7ZmN6riw-5xUHfATNJ10-0332 쟤들은 참 좋겠다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0335 저 담쟁이들은요
+- 6rmA7ZmN6riw-5xUHfATNJ10-0336 서로의 몸을 고리로 만들어서 연결합니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0342 앙트랑블랑 이라고 합니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0346 자 그런데 사람들은 저렇게 바람에 떨리는 장치를 보면
+- 6rmA7ZmN6riw-5xUHfATNJ10-0347 더 아름답다 라고 느꼈답니다
+- 6rmA7ZmN6riw-5xUHfATNJ10-0348 우리는 항상 혁신 앞에서 떨고
+- 6rmA7ZmN6riw-5xUHfATNJ10-0351 고리를 만들어서 손을 잡고 가면
+- 6rmA7ZmN6riw-5xUHfATNJ10-0353 그런 세상 속을 만들 수 있는 여러분들이
+- 6rmA7ZmN6riw-5xUHfATNJ10-0354 바로 지금 당장 어떤 의사결정 앞에서 흔들리고
+- 6rmA7ZmN6riw-5xUHfATNJ10-0355 내가 어떻게 해야 될지 갈팡질팡 할 때
+- 6rmA7ZmN6riw-5xUHfATNJ10-0357 그 떨림이야 말로
+- 6rmA7ZmN6riw-5xUHfATNJ10-0358 바로 저 바람속에서
+- 6rmA7ZmN6riw-5xUHfATNJ10-0359 떨림으로서 더 아름다움을 만들어내는 저 보석처럼
+- 6rmA7ZmN6riw-5xUHfATNJ10-0360 여러분도 그 아름다운 보석이 될 거라고 저는 믿습니다

@@ -1,0 +1,114 @@
+### Sebasi Open Corpus: (Kor, Eng, Chn, Jpn, Fra, Ita, Ger, Por, Rus, Spa, Fl) 세바시 551회 휠체어 파일럿, 꿈을 함께 실현하다 | 최영재 휠체어 파일럿
+
+- Speaker: 최영재
+- Gender: 
+- Length: 7:45 in 101 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=TBqKHlWnaUs] (https://www.youtube.com/watch?v=TBqKHlWnaUs)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0001 안녕하세요 저는 미국에서 온 최영재입니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0005 그래서 걸을 수가 없습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0006 고등학생이 돼서 어머니 아버지께서 이렇게 세발 자전거를 개조해 가지고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0007 그 다음부터는 제가 맘대로 운전하고 학교를 다녔습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0008 너무나도 커다란 자유였습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0009 제가 가고자 하는 곳을 갈 수 있다는 것은
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0010 저에게 있어서는 어마어마한 축복이었어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0011 저는 어려서부터 지나가는 비행기를 보고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0012 내가 오토바이를 타지만
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0014 하는 그런 생각을 했습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0017 두 팔이 없이 태어난 여자분인데
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0019 그래 갖고 나는 모습을 제가 봤습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0020 저에겐 너무나도 충격적이었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0021 어떻게 발로 그게 가능할까 하는 그런 생각을 해봤습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0022 그리고 동시에 생각하기는
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0023 저 사람이 발로 한다면
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0025 정말 해 보고 싶었어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0026 이렇게 제시카의 꿈과 그것을 이룬 것을 보고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0028 저 역시 그런 똑같은 꿈과 도전을 갖게 되는 그러한 것을 볼 때
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0029 꿈이라는 것은 전염성이 있다는 것을 여러분들에게 말씀드리고 싶었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0030 그러던 어느 날
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0034 그냥 나오라니까 거기서 만나자는 줄 알고 나갔습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0038 정말 놀라운 첫번째 경험이었기 때문에 너무나도 신기했습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0039 그 때부터 저는 이제부터 뭔가 해 봐야 되겠다 라는 생각을 했죠
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0040 그래서 인근에 있는 비행학교를 무조건 찾아갔습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0041 이것은 시뮬레이터라 하는 것인데 가상체험을 하는 겁니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0043 비행기처럼 가는 조그만 방 같은 게 실제로 움직입니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0045 제가 저걸 마치고 너무 기쁜 마음으로 교관을 만났습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0046 제가 아무래도 좀 배우고 싶은데 가능합니까
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0047 근데 교관이 하는 말은 너무나도 절망적이었어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0048 나에게는 그런 비행기가 없다라는 겁니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0049 내가 운전할 수 있는 내가 조종할 수 있는 비행기란 자기네가 없고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0053 그럼 이제 내 꿈은 접어야 되는가 했는데
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0054 나오는데 옆에서 어느 분이 그래요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0057 근데 놀라운 사실을 발견했어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0058 아까 말씀드렸던 제시카 콕스도 알고 보니까
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0059 에이블 플라이트에서 훈련을 받고 도움을 받아서 파일럿 자격증을 딴 거예요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0060 그래서 저는 정말 너무나도 기쁜 마음으로
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0061 나도 하면 되겠다 하는 그런 마음이 많이 일기 시작했습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0063 근데 원래 기자였습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0064 또 작가였습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0065 글을 쓰는 분인데
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0066 휠체어를 탄 사람들이 비행교육을 받고 파일럿이 될 수 있는데
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0067 아무도 해주는 사람이 없던 거예요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0068 그래서 이 사람은 나이가 많이 들었는데도 자기의 직업을 바꿨습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0070 지금도 미국의 유일한 장애인을 위한 파일럿 양성 기관입니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0072 2013년도 파일럿이 될 수 있었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0078 웬걸요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0079 너무나도 고된 훈련이었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0080 6주 안에 모든 것을 해야 됩니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0082 그리고 또 제가 생전 해 보지 않았던 그런 공부들이었기 때문에
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0083 너무나도 생소하고 힘들었어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0084 그래서 관제탑에서 얘기하는 소리를 제가 듣고 이해하고 말해야 되는데
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0085 갑자기 입에서 말이 안 나오는 거예요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0087 야 너는 할 수 있어 너무 걱정 말고 끝까지 하면 돼
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0091 단독비행으로 제가 혼자 조종해서 하늘을 날으는 모습입니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0093 하늘을 나를 때 저의 기분이 어떻겠어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0094 맨날 지나가는 비행기만 바라보던 사람이 난다는 것은 정말 기적과 같은 일 아니겠습니까
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0095 그래서 저는 저렇게 솔로비행이라고 해요 끝나고 나면 단독 비행을 하고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0096 이 이후에도 다른 시험을 패스해야 되고 최종 시험을 받아서
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0097 제가 휠체어 파일럿
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0100 그리고 나서 저에게 온 변화는
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0101 바로 제시카가 있었던 기사 위에 제 글이 올라와 있습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0102 이것은 지금 웹페이지에 올라가면 똑같이 볼 수 있습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0105 기적과 같습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0107 그 다음에 어떻게 해야 될까 그러면 이것이 끝인가 했는데
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0110 그 다음에 고등학교 선생을 하는 사람이었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0111 또 장애인은 아니지만 장애인이 탈 수 있는 비행기를 갖고 있었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0113 또 시간을 내서 같이 배워주기도 하고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0114 또 같이 비행도 하고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0115 아주 저에게는 너무나도 고마운 분이었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0116 이렇게 자기가 갖고 있는 것을 자기만 즐기지 않고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0117 저같이 꿈의 동반자가 필요한 사람에게 이렇게 베풀어 준다는 것은
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0118 너무나도 멋지고 너무나도 감격적인 일이었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0119 그리고 최근의 일이었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0121 숀 터커를 만난 것은 우연히 간 공항에서 하는 에어쇼에서 였습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0122 기가 막힌 에어쇼를 하는데
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0123 이분은 정말 세계적으로 유명한 곡예비행의 일인자 입니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0124 그리고 끝나고 나면 여러 사람들이 모여서 사인을 받거나 사진을 같이 찍거나 합니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0125 근데 저에게 문득 생각 난 것은 나도 정말 해 보고 싶다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0126 또 그런 꿈이 생겼던 거예요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0128 또 저 사람이 나한테 그것을 같이 공유해 줄 수 있을까
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0129 그거는 뭐 저의 상상이었죠
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0130 군중을 파헤치고 제가 그 사람한테 갔습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0132 당신과 같이 탈 수 있을까요 그런 질문을 했어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0134 그 사람이 알고 봤더니 많은 사람에게 이렇게 비행의 기회를 제공해서
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0135 또 많은 사람들에게 용기와 희망을 주고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0136 장애인도 태우고 어린 아이도 태우고
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0139 그것이 한 6개월 걸렸어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0140 전화가 왔어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0141 이제 저도 한국 가야되는데
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0142 한번 3월달에 탔으면 좋겠는데 가능하냐고 물어봤습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0143 그 분의 1년 스케줄은 거의 다 고정적으로 나와있어서
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0144 사실 스케줄 잡기가 너무 힘들었습니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0145 그래서 그 분이 전화 온 것이 저에겐 너무나도 기쁜 소식이었어요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0146 곡예 비행기거든요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0147 이 곡예 비행기의 안에 까지 타는 게 보통 일이 아닙니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0150 그런 일을 해야 되기 때문에
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0152 곡예 비행이라는 것은 상당히 육체적으로 힘든 것을 많이 견뎌야 합니다
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0155 그게 가장 기본적인 건데요
+- 7LWc7JiB7J6s-TBqKHlWnaUs-0158 내가 60kg 라면 240kg 가 내 몸을 확 누르는 거예요

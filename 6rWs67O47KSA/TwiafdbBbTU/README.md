@@ -1,0 +1,145 @@
+### Sebasi Open Corpus: (Kor, Mgl) 세바시 339회 글을 진짜 잘 써야 하는 사람, 바로 직장인! | 故 구본준 한겨레신문 기자
+
+- Speaker: 구본준
+- Gender: 
+- Length: 7:10 in 132 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=TwiafdbBbTU] (https://www.youtube.com/watch?v=TwiafdbBbTU)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rWs67O47KSA-TwiafdbBbTU-0003 반갑습니다 저는 오늘 여러분들하고
+- 6rWs67O47KSA-TwiafdbBbTU-0004 15분 동안 이야기를 나누러 온 구본준입니다
+- 6rWs67O47KSA-TwiafdbBbTU-0005 제가 하는 일은 소개를 드릴 때 뭐라고 말씀을 드려야 하나 좀 생각을 해봤는데
+- 6rWs67O47KSA-TwiafdbBbTU-0008 제가 스스로 생각해도 좀 신기할 때가 있습니다
+- 6rWs67O47KSA-TwiafdbBbTU-0009 내가 어쩌다가 이렇게 글로 먹고 살게 됐지
+- 6rWs67O47KSA-TwiafdbBbTU-0010 뭐 이런 생각을 가끔 해요
+- 6rWs67O47KSA-TwiafdbBbTU-0011 왜냐하면요 저는 사실은 한 번도
+- 6rWs67O47KSA-TwiafdbBbTU-0012 제가 글을 쓰는 사람이 될거다 라고 생각해 본 적이 없어요
+- 6rWs67O47KSA-TwiafdbBbTU-0013 원래 저는 기업에서 열심히 일을 하는 신입사원이었어요
+- 6rWs67O47KSA-TwiafdbBbTU-0014 회사를 들어갔는데 꽤 큰 대기업이었는데 아주 좋았어요
+- 6rWs67O47KSA-TwiafdbBbTU-0015 때 되면 밥도 주고
+- 6rWs67O47KSA-TwiafdbBbTU-0020 뭐냐면 갑자기 이제 회사에서 해외에 나가서 근무를 하라는 거에요
+- 6rWs67O47KSA-TwiafdbBbTU-0021 근데 제가 제일 싫어하는 게 외국에서 살기
+- 6rWs67O47KSA-TwiafdbBbTU-0023 그럼 제가 어디를 가야되죠 물어봤더니 북극에서 가장 가까운 나라에 가서
+- 6rWs67O47KSA-TwiafdbBbTU-0024 단신 지사장으로 일을 해줘야겠다는 거예요
+- 6rWs67O47KSA-TwiafdbBbTU-0025 아니 그러면 왜 제가 가야 되죠 여쭤봤어요
+- 6rWs67O47KSA-TwiafdbBbTU-0029 가족도 없고
+- 6rWs67O47KSA-TwiafdbBbTU-0031 한 1년도 넘게 다녔는데
+- 6rWs67O47KSA-TwiafdbBbTU-0032 지금 와서 그 추운 나라로 가라니
+- 6rWs67O47KSA-TwiafdbBbTU-0037 그래서 한번 해 볼까하고 들어갔어요
+- 6rWs67O47KSA-TwiafdbBbTU-0040 기자를 하면 왠지 재밌어 보여 새로운 경험도 많이 할 거 같아
+- 6rWs67O47KSA-TwiafdbBbTU-0042 들어가자마자 이제 후회하기 시작한 거죠
+- 6rWs67O47KSA-TwiafdbBbTU-0043 왜냐면 글을 써야 되니까
+- 6rWs67O47KSA-TwiafdbBbTU-0044 한 번도 글을 안 써 본 사람이 글을 쓰게 되니까 괴롭죠
+- 6rWs67O47KSA-TwiafdbBbTU-0050 글을 잘 쓰는 법을 가르쳐줄 줄 알았어요
+- 6rWs67O47KSA-TwiafdbBbTU-0053 근데 전혀 없어요
+- 6rWs67O47KSA-TwiafdbBbTU-0058 뭐냐면 굉장히 아프게 핀잔을 줘요
+- 6rWs67O47KSA-TwiafdbBbTU-0059 좋게 말해서 그렇지 저희 회사는 좀 덜한 편이었어요
+- 6rWs67O47KSA-TwiafdbBbTU-0060 거의 다른 회사 옆에 입사가 비슷해서 다 아는 동료들을 보면
+- 6rWs67O47KSA-TwiafdbBbTU-0061 어우 저건 정말 내가 들어도 눈물이 나겠다 싶을 정도로
+- 6rWs67O47KSA-TwiafdbBbTU-0064 그런식으로 굉장히 혹독하게 가혹하게 비판적으로
+- 6rWs67O47KSA-TwiafdbBbTU-0066 뭐 이런 식으로 사람을 굉장히 몰아붙여요
+- 6rWs67O47KSA-TwiafdbBbTU-0069 사고로 몸에 상처가 나면
+- 6rWs67O47KSA-TwiafdbBbTU-0071 수술로 고칠 수가 있어요 어느 정도
+- 6rWs67O47KSA-TwiafdbBbTU-0072 근데 글로 마음에 입힌 상처는 정말 안 지워지는 겁니다
+- 6rWs67O47KSA-TwiafdbBbTU-0074 그런 것들을 방지하기 위해서 굉장히 가혹하게 하는 것이였는데
+- 6rWs67O47KSA-TwiafdbBbTU-0078 누가 또 그래요
+- 6rWs67O47KSA-TwiafdbBbTU-0084 늘 그런 일을 반복하고 있는데요
+- 6rWs67O47KSA-TwiafdbBbTU-0085 어쨌건 제가 그래도 나름 오랫동안 글쓰기를 하고
+- 6rWs67O47KSA-TwiafdbBbTU-0086 또 글에 대해서 자학도 하고 이런 식으로 살면서
+- 6rWs67O47KSA-TwiafdbBbTU-0090 그리고 제가 그 분들을 만나면서 느낀거는
+- 6rWs67O47KSA-TwiafdbBbTU-0091 오늘 강연 제목에도 써 있듯이
+- 6rWs67O47KSA-TwiafdbBbTU-0092 정말로 글을 잘 써야되는 사람
+- 6rWs67O47KSA-TwiafdbBbTU-0093 글이 가장 소중해야 되는 사람은
+- 6rWs67O47KSA-TwiafdbBbTU-0096 직장인이라는 겁니다
+- 6rWs67O47KSA-TwiafdbBbTU-0097 왜 직장인들이 글을 잘 써야 되냐
+- 6rWs67O47KSA-TwiafdbBbTU-0098 작가도 아닌데
+- 6rWs67O47KSA-TwiafdbBbTU-0099 그거는 직장인들이야말로 평생 글을 쓰는 사람들이어서 그래요
+- 6rWs67O47KSA-TwiafdbBbTU-0101 굉장히 중요한 글입니다 왜 그러냐면
+- 6rWs67O47KSA-TwiafdbBbTU-0104 의미도 나름 있을 것 같지만
+- 6rWs67O47KSA-TwiafdbBbTU-0105 사실은 조금 지나면 휘발되어 사라지는 그런 거예요
+- 6rWs67O47KSA-TwiafdbBbTU-0106 하지만 직장인들이 만드시는 문서는 그 글은
+- 6rWs67O47KSA-TwiafdbBbTU-0107 그 직장인을 만들어 주는 겁니다
+- 6rWs67O47KSA-TwiafdbBbTU-0108 그 사람들의 일을 하게 해 주고
+- 6rWs67O47KSA-TwiafdbBbTU-0109 직장인들이 그렇잖아요
+- 6rWs67O47KSA-TwiafdbBbTU-0110 직장인들은 직장인들이 만든 문서로 평가받는 존재일 수 있습니다
+- 6rWs67O47KSA-TwiafdbBbTU-0111 더 중요한 거는
+- 6rWs67O47KSA-TwiafdbBbTU-0112 직장인들은 그 문서를 통해서 자기 일을 해내고
+- 6rWs67O47KSA-TwiafdbBbTU-0113 자기 꿈을 이룰 수 있어서 제일 중요한 겁니다
+- 6rWs67O47KSA-TwiafdbBbTU-0117 신문사에는 저 같은 취재기자들이 있고요
+- 6rWs67O47KSA-TwiafdbBbTU-0119 편집 기자분들이에요
+- 6rWs67O47KSA-TwiafdbBbTU-0122 근데 신문사 조직도를 보면요
+- 6rWs67O47KSA-TwiafdbBbTU-0123 저희같이 취재하는 사람들이 더 많기 때문에
+- 6rWs67O47KSA-TwiafdbBbTU-0125 그 이름은 편집국으로 되어 있습니다
+- 6rWs67O47KSA-TwiafdbBbTU-0126 그 말은 무슨 소리냐
+- 6rWs67O47KSA-TwiafdbBbTU-0127 편집기자가 훨씬 중요하다는 얘기에요
+- 6rWs67O47KSA-TwiafdbBbTU-0128 편집기자들은 어떤 일을 하냐
+- 6rWs67O47KSA-TwiafdbBbTU-0129 저희들이 취재 기자들이 하루에 글을 제일 많이 쓰면
+- 6rWs67O47KSA-TwiafdbBbTU-0131 20매면 4000글자죠
+- 6rWs67O47KSA-TwiafdbBbTU-0136 그리고 취재국은 없어도 편집국은 있어요
+- 6rWs67O47KSA-TwiafdbBbTU-0137 그만큼 제목이 중요합니다
+- 6rWs67O47KSA-TwiafdbBbTU-0138 제목이 이렇게 중요하다는 이유는 왜 그럼 중요하냐
+- 6rWs67O47KSA-TwiafdbBbTU-0140 제목이라는 거는 나침반 같은 거예요
+- 6rWs67O47KSA-TwiafdbBbTU-0141 우리가 글을 쓰기 어려운 이유는
+- 6rWs67O47KSA-TwiafdbBbTU-0144 또 생각이 막 자꾸 옆으로 번져나가요
+- 6rWs67O47KSA-TwiafdbBbTU-0150 아깝잖아요
+- 6rWs67O47KSA-TwiafdbBbTU-0154 늘 이런 미궁에 빠지는 게 글쓰기거든요
+- 6rWs67O47KSA-TwiafdbBbTU-0162 그게 아니더라도 키워드 하나라도 충분히 제목이 됩니다
+- 6rWs67O47KSA-TwiafdbBbTU-0163 이번 키워드의 제목이 소풍이다
+- 6rWs67O47KSA-TwiafdbBbTU-0164 그럼 소풍가는 얘기만 하면 되는 거죠
+- 6rWs67O47KSA-TwiafdbBbTU-0167 요리가 그래요
+- 6rWs67O47KSA-TwiafdbBbTU-0169 그럼 시금치 맛으로 승부를 해야됩니다
+- 6rWs67O47KSA-TwiafdbBbTU-0171 시금치의 맛을 더 돋보이게 해 주는 그런 역할을 할 수는 있겠죠
+- 6rWs67O47KSA-TwiafdbBbTU-0172 하지만 양념처럼 넣는 게 시금치 맛을 압도해서는 안 돼요
+- 6rWs67O47KSA-TwiafdbBbTU-0175 이게 맛있어 보인다고 이것저것 다 집어 넣으면
+- 6rWs67O47KSA-TwiafdbBbTU-0179 버려내는 과정에서 굉장히 많은 고민을 해요
+- 6rWs67O47KSA-TwiafdbBbTU-0180 그런 것들이 전부 다 우리의 생각을 키워주고
+- 6rWs67O47KSA-TwiafdbBbTU-0181 우리가 원래 하려던 일의 의미를 밝혀주는 겁니다
+- 6rWs67O47KSA-TwiafdbBbTU-0183 아주 단순합니다
+- 6rWs67O47KSA-TwiafdbBbTU-0186 나는 왜 이 글을 쓰려고 했지
+- 6rWs67O47KSA-TwiafdbBbTU-0187 무엇 때문에
+- 6rWs67O47KSA-TwiafdbBbTU-0189 그게 아니면 가차없이 정말 마음이 아파도
+- 6rWs67O47KSA-TwiafdbBbTU-0192 그게 제일 중요합니다
+- 6rWs67O47KSA-TwiafdbBbTU-0193 두번째로 중요한 거는 사실은
+- 6rWs67O47KSA-TwiafdbBbTU-0196 관점 되게 멋있는 겁니다
+- 6rWs67O47KSA-TwiafdbBbTU-0197 누구나 글을 쓸 때는 나만의 관점을 보여주고 싶어요
+- 6rWs67O47KSA-TwiafdbBbTU-0198 그게 기획서건 하다못해 회사에 쓰게 되는 경위서건
+- 6rWs67O47KSA-TwiafdbBbTU-0199 제가 어제 그런 사고를 저지른 것은 사실은 이런 문제 때문에
+- 6rWs67O47KSA-TwiafdbBbTU-0200 정말 용서를 구할 수 있는 저만의 어떤 관점으로 설득하고 싶죠
+- 6rWs67O47KSA-TwiafdbBbTU-0201 근데 이 관점이라는 것은 사실 어떻게 보면 정말 중요하지만
+- 6rWs67O47KSA-TwiafdbBbTU-0202 살면서 우리가 나만의 관점
+- 6rWs67O47KSA-TwiafdbBbTU-0203 세상에는 없고 나만 가진 생각 나만 보여 줄 수 있는 어떤 이야기
+- 6rWs67O47KSA-TwiafdbBbTU-0204 이런 것들을 할 수 있는 글은 일생동안 그렇게 많지 않아요
+- 6rWs67O47KSA-TwiafdbBbTU-0206 매번 다른 관점으로
+- 6rWs67O47KSA-TwiafdbBbTU-0207 하지만 그렇지가 않습니다
+- 6rWs67O47KSA-TwiafdbBbTU-0208 글이라는 거는 오히려 시점이 훨씬 중요합니다
+- 6rWs67O47KSA-TwiafdbBbTU-0209 그것이 기사든 소설이든 어떤 글이든 인터넷 댓글이든
+- 6rWs67O47KSA-TwiafdbBbTU-0211 늘 시점을 생각하시는 게 좋습니다
+- 6rWs67O47KSA-TwiafdbBbTU-0212 내가 이맘 때는 요런 걸 해야 된다
+- 6rWs67O47KSA-TwiafdbBbTU-0214 회사에서 부장님이 김대리를 불러서
+- 6rWs67O47KSA-TwiafdbBbTU-0218 부장님이 어느 MT 장소가 좋은지 파악해서 결정을 내릴 수 있는 시간적 여유를 두고
+- 6rWs67O47KSA-TwiafdbBbTU-0219 이메일이든 기획안이든 부장님께 드리는게 제일 중요하죠
+- 6rWs67O47KSA-TwiafdbBbTU-0221 정말 이번에 내가 직장인 MT의 완전 결정판을 보여 드려야겠다
+- 6rWs67O47KSA-TwiafdbBbTU-0222 그래서 직장인이 가기 좋은 MT 장소 베스트 100 을 뽑아서
+- 6rWs67O47KSA-TwiafdbBbTU-0224 너무 단순한 거 같지만 현실에서 이런 일이 많을 거에요
+- 6rWs67O47KSA-TwiafdbBbTU-0228 두번째로 100개를 언제 보니
+- 6rWs67O47KSA-TwiafdbBbTU-0229 부장님은 화를 내고 김대리는 속상하고
+- 6rWs67O47KSA-TwiafdbBbTU-0230 MT 가기 전부터 분위기는 완전 엉망이 되는 거죠
+- 6rWs67O47KSA-TwiafdbBbTU-0232 우리가 베스트 셀러라는 걸 보면
+- 6rWs67O47KSA-TwiafdbBbTU-0235 책에 완성도도 중요하지만
+- 6rWs67O47KSA-TwiafdbBbTU-0236 사람들이 어떤 시점에서 궁금해 하는 것들을
+- 6rWs67O47KSA-TwiafdbBbTU-0237 이렇게 가려운 데를 긁어 주듯
+- 6rWs67O47KSA-TwiafdbBbTU-0238 딱 때를 맞춰 나와 주는 책들이 베스트 셀러가 됩니다
+- 6rWs67O47KSA-TwiafdbBbTU-0240 자 그래서 마지막으로 소개시켜 드릴 문장은 이 문장입니다
+- 6rWs67O47KSA-TwiafdbBbTU-0241 소설이건 인터넷 댓글이건 회사에 제가 내는 기안서건
+- 6rWs67O47KSA-TwiafdbBbTU-0244 남들에게 전달해 주면 되는 겁니다
+- 6rWs67O47KSA-TwiafdbBbTU-0245 그 이상도 이하도 없습니다
+- 6rWs67O47KSA-TwiafdbBbTU-0247 기본으로 돌아가라는 메세지를 끊임없이 던져주는 겁니다
+- 6rWs67O47KSA-TwiafdbBbTU-0248 단 힘들더라도 제목만 좀 잘 생각하고
+- 6rWs67O47KSA-TwiafdbBbTU-0250 요것만 생각해서 쓰면 될 거라고 생각합니다
+- 6rWs67O47KSA-TwiafdbBbTU-0251 오늘 와 주신 분들이 괴롭지만 또 재밌는 글 속에서
+- 6rWs67O47KSA-TwiafdbBbTU-0253 이야기 들어주셔서 고맙습니다

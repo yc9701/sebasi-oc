@@ -1,0 +1,132 @@
+### Sebasi Open Corpus: 누구에게나 비밀은 있다 | 윤소정 인큐 대표 | 세바시 406회 | (Kor, Eng, Jpn)
+
+- Speaker: 윤소정
+- Gender: 
+- Length: 6:43 in 119 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=-m03dyVDxcc] (https://www.youtube.com/watch?v=-m03dyVDxcc)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7Jyk7IaM7KCV--m03dyVDxcc-0004 리허설이랑 본방이랑은 진짜 분위기가 다른 것 같아요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0006 제가 일주일전에 리허설을 했었어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0007 결과가 어땠을까요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0008 정말 참혹했어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0011 정말 창피하더라고요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0017 저한테 드라마 작가의 소질이 있는 걸 전 이번에 처음 알았어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0019 근데 딱 정신을 깨고 나서 읽어보니까 하나도 공감되는 게 없는 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0024 두려움을 극복하는 방법이 뭔지 제가 몸으로 한 번 극복해 볼게요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0025 제가 이왕 솔직해지기로 한 거 제가 흑역사 몇 가지 이야기해도 괜찮을까요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0026 오늘 같은 날이면 전 누군가에게 굉장히 잘 보이고 싶습니다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0027 누구한테 잘 보이고 싶을까요 오늘
+- 7Jyk7IaM7KCV--m03dyVDxcc-0029 잘 보이고 싶은 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0031 아픈 과거 세가지 고백할 테니까
+- 7Jyk7IaM7KCV--m03dyVDxcc-0037 저 너무 쪽팔리지만 이야기 시작해 볼게요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0038 첫번째 흑역사입니다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0041 저는 너무 어린 나이에 사람들이 예쁜 여자를 좋아하는 줄 알았어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0043 이러면서 계속 예쁜척을 했어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0048 혹시 아침 방송에 왜 예쁜 여자들이 안나오는 줄 아녜요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0069 거기가서 공순이 처럼 이렇게 핸드폰 조립을 하고 낮에는 친구들이랑 맛있는 것을 사 먹었어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0073 옛날 엑스 보이프렌드 이야기 잠깐 할까요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0074 엑스 보이프렌드가 한 번 그 남자가 저한테 이렇게 이야기를 했어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0076 저 바로 받아쳤잖아요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0078 늘 사랑받는 척했었던 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0079 보고 싶다고 보고 싶어도 보고 싶다고 이야기하지 않았어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0089 근데 이 척하는 것이 얼마만큼 위험한 것 인지 저는 몸으로 깨달았어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0090 여러분들 혹시 외모콤플렉스 하나씩 갖고 계신가요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0099 계속 숨기고 살았었거든요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0101 인정하기가 힘들었던 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0102 혹시 여러분 이 영화 기억나세요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0112 정말 진지하게 저 정도 사이즈면 견적이 얼마나 나올까요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0115 그리고 나서 표정이 점점점 굳으셨어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0120 뼈가 너무 두꺼워서 다 돌려깎아야 된대
+- 7Jyk7IaM7KCV--m03dyVDxcc-0125 못생긴 애들은요 그걸로 사랑받잖아
+- 7Jyk7IaM7KCV--m03dyVDxcc-0127 계속 고민을 하는데 막상 이 하체비만이라는 말조차 하기가 너무 힘든 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0130 엄마보단 예비 남편
+- 7Jyk7IaM7KCV--m03dyVDxcc-0134 극복 극복 극복을 마음속에 계속 새기고
+- 7Jyk7IaM7KCV--m03dyVDxcc-0145 그런데 이게 아무것도 아닌 것 같은데 엄청난 힘을 가지고 있더라고요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0146 자 보세요 여러분
+- 7Jyk7IaM7KCV--m03dyVDxcc-0147 내가 말을 하지 못한 다는 것은 계속 내 안에 두려움을 갖고 있다는 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0152 내가 내 속에 가지고 있으면 그건 두려움이예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0153 근데 내가 말을 하는 순간 더 이상 그건 나의 두려움이 아니더라고요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0154 여러분 주변을 한 번 살펴보세요 아니 주변을 갈 것도 없구요 나를 한 번 돌아보세요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0157 첫 번째 대상이라는 것 같아요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0159 말을 못해요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0160 너 어느 대학 다녀 말을 못해요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0161 스스로 부끄러워하고 있다는 것이죠
+- 7Jyk7IaM7KCV--m03dyVDxcc-0163 저 같은 경우에는 음 저는 실업계 고등학교 출신이고요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0164 또 심지어 자퇴생이에요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0165 그리고 저희 아버지는 택시 운전기사이십니다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0166 근데 이 이야기를 하기까지 굉장히 오랜 시간이 걸렸었어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0168 문득 이런 생각이 들었습니다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0170 내 스스로 계속 나를 감추면서 저 사람이 나를 사랑해 주기를 원한다면
+- 7Jyk7IaM7KCV--m03dyVDxcc-0171 이것만큼 도둑놈 심보가 또 어디 있을까
+- 7Jyk7IaM7KCV--m03dyVDxcc-0173 나오지 않았습니다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0174 제가 인생에서 가장 부끄러워했었던 제 가정사를 이야기하면서
+- 7Jyk7IaM7KCV--m03dyVDxcc-0175 두려움을 극복하는 통과의례를 한 번 거쳐 가 보고 싶어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0176 좀 늦었지만 제 소개를 한 번 해 볼게요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0179 저는 심리학에 관련된 어떠한 상담 자격증도 없고
+- 7Jyk7IaM7KCV--m03dyVDxcc-0180 전공을 해 본 적도 없습니다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0181 그런데 저에게 상담을 받기 위해서 지난 4년간 4천 명의 친구들이
+- 7Jyk7IaM7KCV--m03dyVDxcc-0182 전국에서 미국에서 중국에서 찾아와줬었어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0187 그리고 얼마 전에는
+- 7Jyk7IaM7KCV--m03dyVDxcc-0191 그러다보니까 그런 모습을 SNS에서만 보시면
+- 7Jyk7IaM7KCV--m03dyVDxcc-0192 저에 대해서 궁금해지시겠죠
+- 7Jyk7IaM7KCV--m03dyVDxcc-0193 그러니까 S본부 K 본부 어딘지 아시죠
+- 7Jyk7IaM7KCV--m03dyVDxcc-0194 거기에서 막 인터뷰 요청이나 방송에서 출연해달라는 그런 요청을 받게 되었어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0195 그럼 저도 하고 싶을까요 안 하고 싶을까요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0198 그런데 그때마다 그분들은 분명히 저한테 물어보실 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0199 어떻게 자퇴생이 자격증도 없으면서 미래 대안교육을 이끄냐
+- 7Jyk7IaM7KCV--m03dyVDxcc-0202 제 가정사를 이야기를 했었어야 했어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0203 근데 저는 이야기를 하고 싶어도 어머니께서 이렇게 말씀하시더라고요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0205 차마 이야기를 할 수가 없더라고요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0207 이게 어떻게 보면 정말 많으신 분 들 앞에서 하는 첫 번째 강의예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0210 더 이상 내가 물러설 수는 없겠다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0216 더 이상 뒤돌아보지 말고 앞만 보고 가거라 아빠가 삶을 살아보니까
+- 7Jyk7IaM7KCV--m03dyVDxcc-0217 가리려고 할수록 삶이 너무 무거워진다는 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0219 그 이야기를 딱 들었을 때 우리 아버지의 사랑이 느껴지는 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0220 그런데 저는 지난 10년 동안 저희 아버지를 늘 부끄럽게 생각했었어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0229 우리 아빠가 지금 너무 많이 아파서 나 지금 너무 많이 힘들어
+- 7Jyk7IaM7KCV--m03dyVDxcc-0231 그래서 친구들한테 이야기를 할 수가 없는 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0233 아버지께서 정신병원에 저를 초대하셨어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0234 그래서 정말 영화 속에 보이는 그 병원에
+- 7Jyk7IaM7KCV--m03dyVDxcc-0235 문을 하나 열고 철창을 두 개 열고 세 개를 열고나니까
+- 7Jyk7IaM7KCV--m03dyVDxcc-0236 아버지께서 정신병자들이랑 침을 흘리면서
+- 7Jyk7IaM7KCV--m03dyVDxcc-0239 그때부터 제 이야기를 누군가에게 할 수가 없었습니다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0241 너무너무 미안하다고 이야기하고 싶어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0243 한참 시간이 지나봐야 그 의미를 알 수 있기 때문에
+- 7Jyk7IaM7KCV--m03dyVDxcc-0245 너는 분명히 알아야 될 이유가 있고 네가 태어난 이유를 꼭 알아봐야 된다는 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0246 그래서 정말 악착같이 살았어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0248 사람들한테 제 이야기를하지 않다보니까
+- 7Jyk7IaM7KCV--m03dyVDxcc-0249 사람들한테 숨겨진 제 마음을 이야기하지않다보니까
+- 7Jyk7IaM7KCV--m03dyVDxcc-0250 악착같이 사는 모습이 너무 열심히 사는 한 청년으로 보였나봐요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0251 그랬더니 저를 닮고 싶다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0252 또 저를 본받고 싶다면서 사람들이 막 찾아오기 시작하는 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0253 그래서 굉장히 우연한 기회에 꿈선생이 된 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0255 꿈을 찾아 달래요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0263 미치겠더라고
+- 7Jyk7IaM7KCV--m03dyVDxcc-0270 이 사람들 역시도 속이 다 썩어 들어간 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0271 말을 하지 못하니까
+- 7Jyk7IaM7KCV--m03dyVDxcc-0272 그러다보니까 스스로를 계속 자책하게 되고
+- 7Jyk7IaM7KCV--m03dyVDxcc-0275 다 자기 속안에만 갖고 있었던 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0277 너무 신기하게 사람들이 하나 둘씩 자신의 이야기를 이야기 해 주기 시작했어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0278 그리고 서로가 서로를 인정해주고 믿어주고
+- 7Jyk7IaM7KCV--m03dyVDxcc-0280 그러다보니까 너무 신기하게 사람들이 변하더라고요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0281 그런데 제가 사람들을 변화시킬 때 나름대로 저만의 비밀이 있겠죠
+- 7Jyk7IaM7KCV--m03dyVDxcc-0282 더 너무 많은 이야기를 하고 싶지만
+- 7Jyk7IaM7KCV--m03dyVDxcc-0283 15분 이기 때문에 제 비법 한 가지만 알려드릴까해요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0287 뭐라구요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0301 부잣집 친구들이 성공했어요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0309 실용 지능 이라는 것 때문에 부잣집 아이들이 더 성공한대요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0315 또 자기가 원하는 게 있으면 그걸 협상하는 능력이 가난한 집 친구들보다 훨씬 더 발달되어 있다는 거예요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0327 그럼 나 이것만 키우면 되는 건데
+- 7Jyk7IaM7KCV--m03dyVDxcc-0344 바로 새콤달콤 치유법입니다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0345 뭐라구요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0347 이게 아무것도 아닌 것 같은데 엄청난 힘을 가지고 있습니다
+- 7Jyk7IaM7KCV--m03dyVDxcc-0349 내일부터 만나는 사람 한 사람씩 새콤달콤을 사달라고 해주세요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0350 뭘 사달라구요
+- 7Jyk7IaM7KCV--m03dyVDxcc-0362 그럴 수도 있지 하고 넘기면서 자기의 의사표현을 하는 것부터 발달을 시켰더니
+- 7Jyk7IaM7KCV--m03dyVDxcc-0366 내일부터 새콤달콤 치유법 실천해보시는거죠

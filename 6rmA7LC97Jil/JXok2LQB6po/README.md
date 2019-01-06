@@ -1,0 +1,127 @@
+### Sebasi Open Corpus: (Kor, Eng, Jpn) 세바시 157회 Are You Ok? | 김창옥 서울여대 기독교학과 겸임교수
+
+- Speaker: 김창옥
+- Gender: 
+- Length: 5:59 in 114 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=JXok2LQB6po] (https://www.youtube.com/watch?v=JXok2LQB6po)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 6rmA7LC97Jil-JXok2LQB6po-0004 저 청소년 트라우마가 좀 있습니다
+- 6rmA7LC97Jil-JXok2LQB6po-0006 전에 청소년 강의 갔다가 상처를 좀 심하게 받았습니다
+- 6rmA7LC97Jil-JXok2LQB6po-0007 그때 한 500명이었거든요 중학교 남자애들
+- 6rmA7LC97Jil-JXok2LQB6po-0010 뭐 욕을 안 할 수가 없어요
+- 6rmA7LC97Jil-JXok2LQB6po-0011 근데 500명인데 300명이 저를 이렇게 쳐다보더라고요 앉아가지고
+- 6rmA7LC97Jil-JXok2LQB6po-0014 2학년 애가 저 들으라고
+- 6rmA7LC97Jil-JXok2LQB6po-0015 웃기려고 애를 쓰는구만
+- 6rmA7LC97Jil-JXok2LQB6po-0017 그랬더니 또 옆에 있던 3학년 애가
+- 6rmA7LC97Jil-JXok2LQB6po-0018 나이 먹고 고생한다
+- 6rmA7LC97Jil-JXok2LQB6po-0021 음 청소년 맞죠
+- 6rmA7LC97Jil-JXok2LQB6po-0022 제가 세상에서 제일 무서워하는 건 청소년인 것 같습니다
+- 6rmA7LC97Jil-JXok2LQB6po-0024 저는 오늘 제 청소년 시기를 좀 얘기해보려고 합니다
+- 6rmA7LC97Jil-JXok2LQB6po-0025 그게 초등학교 때 같아요
+- 6rmA7LC97Jil-JXok2LQB6po-0026 초등학교 저학년 때 친구를 집에 데려왔어요
+- 6rmA7LC97Jil-JXok2LQB6po-0027 저희 아버지는 방송에서 몇 번 말씀드렸던 것처럼 청각장애가 있으세요
+- 6rmA7LC97Jil-JXok2LQB6po-0028 그런데 저는 아버지가 청각장애가 있다는 사실을 몰랐습니다
+- 6rmA7LC97Jil-JXok2LQB6po-0029 그 친구가 저희 집에 오기 전까지는
+- 6rmA7LC97Jil-JXok2LQB6po-0031 안녕하세요 저 창욱이 친구입니다
+- 6rmA7LC97Jil-JXok2LQB6po-0034 어 창욱이 친구 왔구나 너는 고향이 어디니 뭐 이렇게 물어보실 그런 분위기였는데
+- 6rmA7LC97Jil-JXok2LQB6po-0038 어느 날 그런 게 이제 생기기 시작할거예요
+- 6rmA7LC97Jil-JXok2LQB6po-0039 청소년이 되면 그런 걸 알기 시작해요
+- 6rmA7LC97Jil-JXok2LQB6po-0040 아 우리 엄마하고 우리 아빠는 사이가 그리 좋지는 않으시구나
+- 6rmA7LC97Jil-JXok2LQB6po-0048 아 그리고 남자들이 나를 별로 좋아하지 않고
+- 6rmA7LC97Jil-JXok2LQB6po-0049 남자들이 나를 여자로 보지 않구나
+- 6rmA7LC97Jil-JXok2LQB6po-0053 이제 이런 슬픈 사실들을 청소년 시기가 되면 알기 시작해요
+- 6rmA7LC97Jil-JXok2LQB6po-0056 메이크업 마음의 메이크업
+- 6rmA7LC97Jil-JXok2LQB6po-0057 그리고 이 메이크업이 점점 더 심해지면 뭐가 되냐면
+- 6rmA7LC97Jil-JXok2LQB6po-0058 가면이 되기 시작해요
+- 6rmA7LC97Jil-JXok2LQB6po-0059 저는 고등학교를 특목고를 나왔어요
+- 6rmA7LC97Jil-JXok2LQB6po-0060 공고예요
+- 6rmA7LC97Jil-JXok2LQB6po-0064 고등학교를 딱 들어가 보니까 친구 가방에서는 영한사전이 나오더라구요
+- 6rmA7LC97Jil-JXok2LQB6po-0070 인문계 다니는 애들이나 부잣집 애들한테 기죽고 싶지 않더라고요
+- 6rmA7LC97Jil-JXok2LQB6po-0071 그래서 약간 중고등학교 다닐 땐 좀 이런 스타일이었는데
+- 6rmA7LC97Jil-JXok2LQB6po-0078 열등감을 만회해보고 싶어서 대학을 가고 싶었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0079 그리고는 제가 제주도에 있었고 공부를 그리 잘하지 않았죠
+- 6rmA7LC97Jil-JXok2LQB6po-0081 그래서 이제 제주대학교 제주도에서 가장 좋은 학교였었죠
+- 6rmA7LC97Jil-JXok2LQB6po-0083 어떻게 됐을까요 청소년들
+- 6rmA7LC97Jil-JXok2LQB6po-0084 여러분 바람대로 떨어졌어요
+- 6rmA7LC97Jil-JXok2LQB6po-0086 여러분이 바라시고 기도하시고 소망하시고 염원하셔서
+- 6rmA7LC97Jil-JXok2LQB6po-0088 여러분이 이렇게 바라는데 어떻게 안 떨어지겠어요
+- 6rmA7LC97Jil-JXok2LQB6po-0089 그리고는 저는 이제 재수를 했어요
+- 6rmA7LC97Jil-JXok2LQB6po-0090 재수해서라도 꼭 대학을 가고 싶었는데
+- 6rmA7LC97Jil-JXok2LQB6po-0091 그 이유는 내 비전이 있기 때문이 아니었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0092 저희 집이 2남 4녀였는데
+- 6rmA7LC97Jil-JXok2LQB6po-0093 아무도 대학을 못 갔어요
+- 6rmA7LC97Jil-JXok2LQB6po-0094 엄마가 막내 하나는 꼭 대학을 가기를 바랬었고
+- 6rmA7LC97Jil-JXok2LQB6po-0095 저도 대학이라는 간판에 정체성을 저를 이렇게 넣고 싶었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0096 그래서 이번에는 4년제 대학을 치면 떨어질 것 같아서
+- 6rmA7LC97Jil-JXok2LQB6po-0097 전문대를 보기로 했어요
+- 6rmA7LC97Jil-JXok2LQB6po-0099 정말 겸손한 전문대학이었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0103 그냥 겸손하게 존재만 하는 대학이었었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0104 그 대학을 쳤는데 어떻게 됐을까요
+- 6rmA7LC97Jil-JXok2LQB6po-0107 여러분이 바라시고 기도하시고 염원하시고 소망하셔서
+- 6rmA7LC97Jil-JXok2LQB6po-0108 저는 전문대를 또 떨어졌어요
+- 6rmA7LC97Jil-JXok2LQB6po-0109 그리고는 21살
+- 6rmA7LC97Jil-JXok2LQB6po-0110 21살에 저는 자살을 시도했습니다
+- 6rmA7LC97Jil-JXok2LQB6po-0111 제가 전문대를 재수해서 떨어지고 처음 느낀 건
+- 6rmA7LC97Jil-JXok2LQB6po-0112 엄마가 저를 부끄럽게 생각한다는 느낌이었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0113 그 느낌이 상당히 슬프더라구요
+- 6rmA7LC97Jil-JXok2LQB6po-0114 아 우리 엄마도 이제 나를 부끄러워하는구나
+- 6rmA7LC97Jil-JXok2LQB6po-0117 처음부터 죽어야지 이런 생각은 아니었고
+- 6rmA7LC97Jil-JXok2LQB6po-0121 얼굴에 슬픈 표정을 한 적도 없어요
+- 6rmA7LC97Jil-JXok2LQB6po-0122 제 가면은 사람이 열등감이 생기고 상처가 생기면
+- 6rmA7LC97Jil-JXok2LQB6po-0128 제가 좀 성격이 못돼서 예쁜 여학생만 웃겨줬어요
+- 6rmA7LC97Jil-JXok2LQB6po-0130 안 예쁘면 웃기기 싫더라구요
+- 6rmA7LC97Jil-JXok2LQB6po-0131 참 인격장애 인격장애
+- 6rmA7LC97Jil-JXok2LQB6po-0133 저 같은 사람이 되지 마세요
+- 6rmA7LC97Jil-JXok2LQB6po-0139 왜냐 가만히 있으면은 내 삶에 현실과 마주쳐야 한다는 걸 어린 나이에도 알고 있었기 때문이에요
+- 6rmA7LC97Jil-JXok2LQB6po-0140 근데 자살하기 전에 바닷가에 빠지기 전에
+- 6rmA7LC97Jil-JXok2LQB6po-0141 마지막으로 친구에게 전화를 한번 해보고 싶더라고요
+- 6rmA7LC97Jil-JXok2LQB6po-0143 그 친구에게 전화해서 제가 듣고 싶었던 말은 뭘까요 청소년들
+- 6rmA7LC97Jil-JXok2LQB6po-0144 오 죽지마 죽지마
+- 6rmA7LC97Jil-JXok2LQB6po-0151 늘 밝던 형이 새벽에 전화해서 갑자기 죽겠다고 하니까 한 번도 듣지 못 했던 목소리 톤으로요
+- 6rmA7LC97Jil-JXok2LQB6po-0152 아무 말도 못하더라고요
+- 6rmA7LC97Jil-JXok2LQB6po-0155 하던 대로 하라고
+- 6rmA7LC97Jil-JXok2LQB6po-0158 지금 박수 칠 때와 치지 말아야 할 때를 구분 전혀 못하고 있어요
+- 6rmA7LC97Jil-JXok2LQB6po-0163 그 소리를 듣고는 이런 생각을 했어요
+- 6rmA7LC97Jil-JXok2LQB6po-0164 아 난 친구가 없구나
+- 6rmA7LC97Jil-JXok2LQB6po-0166 그래 죽자
+- 6rmA7LC97Jil-JXok2LQB6po-0167 그리고는 방파제에 가서 앉았어요
+- 6rmA7LC97Jil-JXok2LQB6po-0170 그리고는 앞을 보고 있었죠
+- 6rmA7LC97Jil-JXok2LQB6po-0172 아 떨어지면 엄마가 조금 슬퍼하다가 나는 잊혀지겠지라는 생각도 들었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0173 그리고는 이제 마음이 점점 이렇게 뒤에서 무언가가 저를 미는듯한 느낌이었죠
+- 6rmA7LC97Jil-JXok2LQB6po-0174 그런데 제가 여기 있는데 저 카메라 정도에 어떤 젊은 여자분이 이렇게 방파제에 서있더라고요
+- 6rmA7LC97Jil-JXok2LQB6po-0176 한복 같은 거를 위아래로 입으셨는데 하얀색이었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0179 그분이 갑자기 치마를 무서운지 자기 얼굴까지 이렇게 딱 덮더라고요
+- 6rmA7LC97Jil-JXok2LQB6po-0181 그리고는 뒤로 살짝 빼더니 조금도 주저하지 않고 바다로 뛰어내렸어요
+- 6rmA7LC97Jil-JXok2LQB6po-0186 컴퓨터 그래픽처럼 싹 하고 사라져버렸어요
+- 6rmA7LC97Jil-JXok2LQB6po-0188 새벽 두시 저는 완전한 형체도 봤는데
+- 6rmA7LC97Jil-JXok2LQB6po-0189 바다에는 풍덩 소리도 없고 아무것도 없었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0190 순간 무슨 생각이 드냐면
+- 6rmA7LC97Jil-JXok2LQB6po-0191 안 무서운 데서 죽고 싶다는 생각이 들었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0194 여기 무서우니까 못 죽겠더라고요
+- 6rmA7LC97Jil-JXok2LQB6po-0197 여기 오신 청소년이나 우리 어른들께 꼭 얘기하고 싶습니다
+- 6rmA7LC97Jil-JXok2LQB6po-0199 저는 여러분에게 꼭 얘기하고 싶습니다
+- 6rmA7LC97Jil-JXok2LQB6po-0200 죽지 말라고 꼭 얘기하고 싶어요
+- 6rmA7LC97Jil-JXok2LQB6po-0207 일본에 장훈이라는 선수가 있었어요
+- 6rmA7LC97Jil-JXok2LQB6po-0209 장선수가 하도 야구를 잘하니까 귀화하라고 했어요
+- 6rmA7LC97Jil-JXok2LQB6po-0211 한국 사람인데 일본 사람으로 국적을 바꾸라는 거예요
+- 6rmA7LC97Jil-JXok2LQB6po-0213 이유가 뭐냐고 물었죠
+- 6rmA7LC97Jil-JXok2LQB6po-0217 여러분 저 한국 사람입니다
+- 6rmA7LC97Jil-JXok2LQB6po-0223 일본 관중석에서 한 사람이 이렇게 얘기했습니다
+- 6rmA7LC97Jil-JXok2LQB6po-0224 조센진 가라
+- 6rmA7LC97Jil-JXok2LQB6po-0226 조센진 빠가야로
+- 6rmA7LC97Jil-JXok2LQB6po-0238 예 거기다 대고 욕했으니까
+- 6rmA7LC97Jil-JXok2LQB6po-0243 관중석을 향해서 한마디 했어요
+- 6rmA7LC97Jil-JXok2LQB6po-0250 전 그 얘기를 듣고 있는데 라디오에서 눈물이 났어요
+- 6rmA7LC97Jil-JXok2LQB6po-0252 그래 우리 아버지 청각장애 있다
+- 6rmA7LC97Jil-JXok2LQB6po-0253 그래 우리 엄마 우리 아빠 사이 그렇게 좋지 않았다
+- 6rmA7LC97Jil-JXok2LQB6po-0257 무슨 뜻이에요
+- 6rmA7LC97Jil-JXok2LQB6po-0263 그 나 자신에 대해서 이렇게 얘기하는 거예요
+- 6rmA7LC97Jil-JXok2LQB6po-0273 비난받고 사람들이 야유를 퍼붓는 가운데서 야구를 하는 사람들이 있어요
+- 6rmA7LC97Jil-JXok2LQB6po-0275 그렇지만 제가 생각하는 마지막 아주 중요한 이야기는
+- 6rmA7LC97Jil-JXok2LQB6po-0277 우리 청소년들 혹시 여러분의 삶이나 환경이 여러분을 야유하고 비난하고 있다면

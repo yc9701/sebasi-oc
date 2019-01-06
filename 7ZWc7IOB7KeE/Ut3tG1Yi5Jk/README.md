@@ -1,0 +1,85 @@
+### Sebasi Open Corpus: 절실함으로 인생 드라마를 써가세요 | 한상진 배우 | 강의 강연 영상 듣기 | 세바시 866회
+
+- Speaker: 한상진
+- Gender: 
+- Length: 5:14 in 72 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=Ut3tG1Yi5Jk] (https://www.youtube.com/watch?v=Ut3tG1Yi5Jk)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0002 반갑습니다 배우 한상진입니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0003 오늘 제가 여기서 여러분들께 나누고 싶은 이야기는
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0004 저는 강연보다는 제 이야기를 잠깐 여러분들께 나누러 나왔습니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0005 고등학교를 졸업하던 해부터 연기자가 되겠다고 하고 시작을 하고
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0007 어 근데 사실 저는 2007년에 신인상을 받았습니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0008 근데 2007년 신인상을 받기 전까지만 하더라도요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0009 제가 어떤 작품에 나왔을 때
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0011 실제로 여러분들이 아시는 작품 중에서
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0013 거기에 제가 나옵니다  모르시겠죠 네
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0014 소지섭 씨와 같은 회사에 근무하는 부서에서 소지섭 씨가 앉은 자리 바로 앞에 앉아서
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0016 하하 이렇게 말해도 모르시겠죠 네 그리고 영화에서 보면
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0019 그렇게 10년을 넘게 배우 생활을 합니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0021 10명도 한두 자릿수도 안되는 사람들이 제가 배우인 걸 알고 있었던 시절이 있었습니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0022 2006년에 저는 아무도 모르게 데뷔했듯이
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0025 여러 스타 배우들도 있고 주연 배우들도 있고 또 그 배역 중에서도 고정배역이 있고
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0027 점심때는 그냥 길거리에서 길 물어보는 행인 1
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0029 저도 저 자신이 뭘 하고 있는지 몰랐어요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0030 배우란 직업 너무 좋긴 하지만 연기가 너무너무 좋은데
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0031 인정받지 못한다는 생각에 저 혼자의 자존감은 굉장히 낮아지고 있었습니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0034 제가 어디 갈 곳이 없으니까 일단 호텔에 짐을 풉니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0036 지금 내 모든 상황들이 야 내가 여기 뭐 하고 있지
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0038 아내는 한국에서 일단 있었고요 제가 먼저 가서 자리를 잡겠다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0039 이게 불과 오래된 얘기도 아닙니다 2006년 10년 전이죠
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0040 그렇게 하고 첫날 밤 몸을 뉘어서 이게 너무 막막하니까 눈물조차 안 나더라고요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0041 아 어떻게 하지 어떻게 하지 호기롭게 떠나오긴 했는데
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0044 받아야 되나 말아야 되나 받으면 뭐라고 해야 되나
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0047 여기 뭐 내일 드라마 오디션 있으니까 보러 오세요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0049 저 미국인데요 아 그랬더니 그쪽에서
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0050 아 그럼 어쩔 수 없네요 다음에 또 연락드릴게요 이러고 전화를 끊습니다 전화를 끊고 났는데
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0053 그때처럼 심장이 갑자기 뛰는 적이 없었어요 어 왜 이러지 왜 이러지
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0055 항공사에 전화를 했더니 가장 빠른 비행기가 내일 밤에 있다고 합니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0060 어 한국으로 가는 비행기 표를 그러면 끊겠습니다 얼마죠
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0061 물어봤더니 그분께서 갈 수 있는 비행기 표가
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0067 왜냐면 이 기회를 놓치면 안 될 것 같다는 생각이 들었어요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0069 제가 모든 걸 포기한 상황이었거든요 근데 이 전화 한 통이
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0071 그럼 이 오디션은 실패하더라도 난 가야 된다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0076 안녕하세요 저 한상진입니다 저 전화 받고 오디션 보러왔습니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0080 그럼 왔으니까 감독님한테 인사 한번 드리고 가세요 이러는 거예요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0086 이게 제 인생의 마지막 오디션 이라는 생각을 갖고 갔잖아요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0088 근데 희한하게 제 얘기를 그 감독님이 너무 재밌게 들어주시는 거예요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0089 지금 여러분들처럼 제 얘기를 이렇게 재밌게
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0093 그리고 감독님께서 다음에 또 보자
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0095 근데 문을 닫고 나왔는데 제가 그전까지 못 느꼈던 걸 느꼈어요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0100 와 맞다 그렇구나 내가 지금까지 잘못 생각했었다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0101 나는 그동안 내가 어떤 작품에서만 주인공을 하려고 했었지
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0102 내 인생을 한 번도 생각해 본 적이 없었던 거예요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0105 주인공이 역경을 막 이겨내고 막 여기서 여러 사람들 또 비행기 표를 끊고
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0110 한국이든 미국이든 외국에서든 이제부터 내가 주인공인 내 인생을 살겠다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0111 난 배우가 아니어도 된다 왜 나는 내 인생의 주인공을 하고 있으니까
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0112 저뿐만 아니라 여러분들도 마찬가지입니다 여러분들 인생에서도 여러분들이 주인공이죠
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0114 어 여기 앉아계신 관객분 인생에서 저는 조연이죠
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0116 각자 인생의 주인공
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0117 내 인생의 주인공
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0122 그리고 나서 이 오디션의 반전은 없다고 생각하고 집으로 돌아옵니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0127 그 작품이 바로
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0132 저는 모든 걸 다 내려놨었거든요 모든 걸 내려놨을 때
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0133 저한테 새로운 기회가 찾아온 거였어요 그리고 제가 생각을 좀 바꿨거든요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0134 저는 그전까지 자존감도 없고 주변인인 줄 알았더니 그게 아니었던 것이었습니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0138 최근에는 육룡이나르샤 서클이라는 드라마에도 출연했었고요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0139 그 아주 저한테는 짧은 순간이었습니다 제가 비행기 표를 사고 그 전화를 받고
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0141 순간에 결정해야 될 때가 있습니다 근데 그 순간을 결정해야 될 때 그 순간을 결정하려면
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0142 그 전에 분명히 자기만의 시간과 자기만의 노력과 자기만의 성찰이 필요합니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0144 각자 모든 인생의 주인공은 바로 여러분들이니까요
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0147 창의성은 모든 생각의 유형이 총체적으로 결합되어 나타나는 고차적인 사고능력으로 간주되기도 한다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0148 이거 무슨 말인지 아시겠습니까 저는 전혀 모르겠습니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0152 창조하고 창의 얘기하려면 무엇인가를 깨줘야 된다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0154 깨져야지만 제가 새로운 것을 만들 수 있다고 생각합니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0157 그 깨지는 순간은 여러분들의 절실함에서 온다고 생각합니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0162 제 인생을 바꾼 얘기를 해드렸고 이 시간 이후에 단 한 분이라도 제 얘기를 통해서
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0163 뭔가 깨지고 또 의미를 꼭 찾는 그런 시간이 되었으면 좋겠고
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0164 여러분들과 오늘 만나 뵙게 돼서 제가 너무너무 반가웠습니다
+- 7ZWc7IOB7KeE-Ut3tG1Yi5Jk-0166 고맙습니다 네

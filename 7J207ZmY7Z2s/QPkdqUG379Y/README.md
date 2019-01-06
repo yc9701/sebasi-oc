@@ -1,0 +1,168 @@
+### Sebasi Open Corpus: (Kor) 세바시 326회 세상을 바꾼 작은 용기 | 이환희 개포고등학교 2학년
+
+- Speaker: 이환희
+- Gender: 
+- Length: 7:12 in 155 fragments
+- Place: Seoul
+- Year: 
+- URL: [https://www.youtube.com/watch?v=QPkdqUG379Y] (https://www.youtube.com/watch?v=QPkdqUG379Y)
+- Transcriber: 
+- Reviewer: 
+
+---
+
+- 7J207ZmY7Z2s-QPkdqUG379Y-0001 안녕하세요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0004 혹시 이 벌레가 뭔지 아세요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0006 네 다들 알고 계시네요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0009 제가 2009년부터 꾸준히 해온 무당벌레 살리기 프로젝트예요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0010 이제 이야기를 시작하기 전에
+- 7J207ZmY7Z2s-QPkdqUG379Y-0011 제가 저희 아파트를 일단 먼저 소개를 할게요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0013 누군가는 되게 멋있다 매력적이다
+- 7J207ZmY7Z2s-QPkdqUG379Y-0014 이렇게 말할 수 있는 아파트 사진인데요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0015 저는 이 아파트를 무당벌레들의 공동묘지라고 해요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0019 정말 끔찍한 장면을 보게되었는데요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0021 아니 허구한날 왜 무당벌레들이 날아와서 왜 조명에서 죽어있을까
+- 7J207ZmY7Z2s-QPkdqUG379Y-0025 저는 처음에는 뭘 어떻게 해야 될지 몰라서
+- 7J207ZmY7Z2s-QPkdqUG379Y-0027 이 세 가지를 가지고 옥상에 올라가서 매일매일
+- 7J207ZmY7Z2s-QPkdqUG379Y-0029 어디서 가장 많이 죽는지 계속 그거를 관찰을 했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0034 그래서 저는 이 장소를 킬링스팟이라고 불렀어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0036 총 7군데인데요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0037 저는 또 우리 동이 이렇게 비극적인 일이 계속 일어나고 있는데
+- 7J207ZmY7Z2s-QPkdqUG379Y-0038 다른 동에서도 혹시 이런 일이 일어나고 있는지
+- 7J207ZmY7Z2s-QPkdqUG379Y-0039 정말 궁금한거예요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0047 네 한 마리도 없었어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0051 또 저는 무당벌레를 이렇게 관찰하다 보니까
+- 7J207ZmY7Z2s-QPkdqUG379Y-0052 무당벌레에 대해서 궁금증이 생겼어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0054 모든 서적들을 다 뒤져보기 시작했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0060 이게 대략 6070마리예요 하루에 이렇게 많이 죽어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0062 이 무당벌레가 한평생 살면서 잡아 먹는 진딧물 수가
+- 7J207ZmY7Z2s-QPkdqUG379Y-0063 4천마리 이상이라고 해요 어마어마하게 많이 잡아먹잖아요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0066 그러면 우리는 얘네들을 대신해서
+- 7J207ZmY7Z2s-QPkdqUG379Y-0070 그렇게 다들 생각 안하세요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0071 저는 그렇게 생각을 해요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0072 여튼 여기까지 제가 중학교 1학년 때 탐구한거구요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0073 중학교 2학년이 되자 너무 마음이 무거웠어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0074 왜냐하면 조명을 끌 수가 없으니까 무당벌레들이
+- 7J207ZmY7Z2s-QPkdqUG379Y-0076 저는 어떻게 하면 무당벌레들을 살릴 수 있을까
+- 7J207ZmY7Z2s-QPkdqUG379Y-0077 계속 고민했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0078 그런데 저희 아파트 바로 앞에 공원이 있다고 했잖아요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0081 무당벌레들이 이끌려 날아와도 타 죽지 않고 쉬었다가
+- 7J207ZmY7Z2s-QPkdqUG379Y-0087 가지 상추
+- 7J207ZmY7Z2s-QPkdqUG379Y-0088 여러 종류를 다 심었는데요 일단 제가 아까 말씀 드린 킬링스팟
+- 7J207ZmY7Z2s-QPkdqUG379Y-0090 비교적 무당벌레들이 덜 죽는 곳에는
+- 7J207ZmY7Z2s-QPkdqUG379Y-0092 처음에는 무당벌레들이 살아있는 것을 발견하지 못했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0093 왜냐하면 제가 옥상을 올라갈 때마다 무당벌레들이 손 들면서
+- 7J207ZmY7Z2s-QPkdqUG379Y-0094 나 여기있어 나 살아있어
+- 7J207ZmY7Z2s-QPkdqUG379Y-0095 빨리 찍어줘 이런 식이 아니잖아요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0097 시간도 많이 들고 힘든데 그냥 포기하고 딴 일이나 할까
+- 7J207ZmY7Z2s-QPkdqUG379Y-0100 생존한 무당벌레를 발견하게 되었어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0104 날아가는 줄 알았어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0107 살아있는 무당벌레들이 많아지기 시작했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0115 역부족이라고 생각을 해서
+- 7J207ZmY7Z2s-QPkdqUG379Y-0116 좀 더 적극적이고 활동적인
+- 7J207ZmY7Z2s-QPkdqUG379Y-0117 그런 연구를 해야겠다고 다짐 했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0120 인터뷰 사진이에요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0122 혹시 옥상조명을 끌 수 있냐 아니면
+- 7J207ZmY7Z2s-QPkdqUG379Y-0123 무당벌레들이 덜 죽는 조명을
+- 7J207ZmY7Z2s-QPkdqUG379Y-0124 바꿀 수 있냐 말씀을 드렸어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0125 그랬더니 소장님께서 이런 말씀을 하시더군요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0127 혹시 조명을 끈다는 거는
+- 7J207ZmY7Z2s-QPkdqUG379Y-0128 절대 좀 불가능한 일이야
+- 7J207ZmY7Z2s-QPkdqUG379Y-0129 우리 아파트는 그렇게 끌 수가 없거든
+- 7J207ZmY7Z2s-QPkdqUG379Y-0130 그런데 조명을 바꾸자고 한다면 그 비용은 누가 내지
+- 7J207ZmY7Z2s-QPkdqUG379Y-0134 이렇게 말씀해 주시니까
+- 7J207ZmY7Z2s-QPkdqUG379Y-0135 뭔가 좀 슬프더라구요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0139 주임님께서도 소장님과 비슷한 의견을 내셨어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0141 혹시 가까운 대학교나 연구원
+- 7J207ZmY7Z2s-QPkdqUG379Y-0142 이쪽에 가서 연구를 한번 해 보는 건 어떠냐고
+- 7J207ZmY7Z2s-QPkdqUG379Y-0145 인터넷으로 저를 도와주실 수 있는 분들을 찾기 시작했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0149 그 연구원님께서 현재 저희 아파트 위에 설치되어 있는 조명의
+- 7J207ZmY7Z2s-QPkdqUG379Y-0150 종류와 특성을 알려주셨는데요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0151 일단 저희 아파트에 설치되어 있는 조명이
+- 7J207ZmY7Z2s-QPkdqUG379Y-0153 이 메타할라이드라는 조명을 굳이 알 필요는 없어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0162 그걸로 교체를 한다면 무당벌레들이 더 이상 죽지 않는다는 거예요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0165 그래서 저도 이걸 주민들한테 말씀을 드렸어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0169 집에 와서 그때 펑펑 울었어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0170 중학교 3학년 때도
+- 7J207ZmY7Z2s-QPkdqUG379Y-0171 2학년 때와 비슷하게
+- 7J207ZmY7Z2s-QPkdqUG379Y-0172 옥상에 텃밭을 조성했는데요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0173 그때는 그린 트러스트라는 환경단체를 알게 되었어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0175 그러고 제가 정말 무식하게도
+- 7J207ZmY7Z2s-QPkdqUG379Y-0180 너무 멍청한 거 같아요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0182 너무 많아가지고 차가 가라앉을 거 같은거예요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0188 또 엘리베이터는 27층밖에 없어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0195 비가 폭풍우가 쏟아지는거예요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0196 미친 듯이
+- 7J207ZmY7Z2s-QPkdqUG379Y-0200 그때 옥상텃밭을 만든거예요 그런데 부모님께서 그러시더라구요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0204 저는 이렇게 말씀 드렸어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0205 아니 하늘도 스스로 돕는 자를 돕는다는데
+- 7J207ZmY7Z2s-QPkdqUG379Y-0209 감사합니다
+- 7J207ZmY7Z2s-QPkdqUG379Y-0211 여기까지가 제가 중학교 3학년 때 탐구한거구요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0213 고등학교 1학년이 되니까
+- 7J207ZmY7Z2s-QPkdqUG379Y-0215 왜냐하면 연구성과가 좀 더뎠어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0216 성과가 없는거예요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0218 제가 아까 말씀 드렸다시피 역부족이잖아요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0220 발로 뛰고 더 열정적이고
+- 7J207ZmY7Z2s-QPkdqUG379Y-0221 더 적극적이게 활동을 해야되겠다고 생각을 했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0223 첫 번째
+- 7J207ZmY7Z2s-QPkdqUG379Y-0225 그 옥상조명의 위험성을 다 알려 드렸어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0226 두 번째는
+- 7J207ZmY7Z2s-QPkdqUG379Y-0228 세 번째는
+- 7J207ZmY7Z2s-QPkdqUG379Y-0233 제가 이런 일을 하고 있는데 혹시 옥상조명을 끄거나
+- 7J207ZmY7Z2s-QPkdqUG379Y-0235 많은 분들이 제 연구에 동의를 해주시더라구요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0237 옥상조명을 소등하게 되었어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0239 그리고
+- 7J207ZmY7Z2s-QPkdqUG379Y-0240 옥상조명이 현재까지 계속되고 있구요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0242 그 네 번째 계획은 뭐였냐면요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0243 우리 아파트 50개 건설사에다가
+- 7J207ZmY7Z2s-QPkdqUG379Y-0244 옥상조명의 위험성과 설문지를 보냈어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0246 저희 아파트 지은 회사가 코오롱 건설회사예요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0247 그쪽 연구원님들께서 저한테
+- 7J207ZmY7Z2s-QPkdqUG379Y-0248 환희학생 보고서를 봤다 연구도 봤고
+- 7J207ZmY7Z2s-QPkdqUG379Y-0249 굉장히 괜찮은 아이디어같다
+- 7J207ZmY7Z2s-QPkdqUG379Y-0252 좋은 아이디어 있으면 같이 한번 생각해보자
+- 7J207ZmY7Z2s-QPkdqUG379Y-0253 이렇게 말씀해 주셨어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0254 저는 정말 감사하죠
+- 7J207ZmY7Z2s-QPkdqUG379Y-0258 또 그러고 코오롱 건설사에서
+- 7J207ZmY7Z2s-QPkdqUG379Y-0259 저한테 삼화 페인트를 알려주셨어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0260 2009년 9월달에요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0261 그린 트러스트 환경단체랑 그러고 코오롱 연구원님들
+- 7J207ZmY7Z2s-QPkdqUG379Y-0262 그리고 코오롱 연구원님께서 저희 아파트 옥상에 방문해 주셨어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0263 이 때 삼화 페인트연구원님들께서 저희 조명에다가
+- 7J207ZmY7Z2s-QPkdqUG379Y-0269 올해 이 도료의 효능을 봤어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0270 원래 우리아파트 조명에서 무당벌레가 수십마리가 죽거든요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0274 또 제가 마지막 목표가 뭐냐면요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0275 우리나라뿐만 아니라 전세계에서
+- 7J207ZmY7Z2s-QPkdqUG379Y-0276 이 조명 새로 짓는 아파트나 빌딩 위에 조명을 설치할 때는
+- 7J207ZmY7Z2s-QPkdqUG379Y-0278 아니면 이렇게 친환경적인 제품을
+- 7J207ZmY7Z2s-QPkdqUG379Y-0283 탐구한거구요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0284 이 연구를 하면서
+- 7J207ZmY7Z2s-QPkdqUG379Y-0285 굉장히 많은 발전이 있었다고 생각 해요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0286 일단 사람들을 많이 만나다 보니까
+- 7J207ZmY7Z2s-QPkdqUG379Y-0287 대인간의 관계가 원활해지고
+- 7J207ZmY7Z2s-QPkdqUG379Y-0288 또 같이 이야기를 나누다 보니까
+- 7J207ZmY7Z2s-QPkdqUG379Y-0289 또 생각하는 크기나 이런게 더
+- 7J207ZmY7Z2s-QPkdqUG379Y-0291 연구방법도 다양해지고
+- 7J207ZmY7Z2s-QPkdqUG379Y-0292 그러고 제일 큰 변화가 있었던 게
+- 7J207ZmY7Z2s-QPkdqUG379Y-0293 제 장래희망이 바뀌었어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0294 제가 원래 예전에 막연하게
+- 7J207ZmY7Z2s-QPkdqUG379Y-0295 환경 환경단체에 가입해서 활동하고 싶다
+- 7J207ZmY7Z2s-QPkdqUG379Y-0296 아니면
+- 7J207ZmY7Z2s-QPkdqUG379Y-0297 솔직히 가소롭기 짝이 없지만
+- 7J207ZmY7Z2s-QPkdqUG379Y-0301 그런데 제가 이 일을 계속 하면서 장래희망이 바뀌기 시작한거죠
+- 7J207ZmY7Z2s-QPkdqUG379Y-0302 일단 사람들을 많이 만나야 되잖아요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0304 사람들하고 같이 대화를 하다보면
+- 7J207ZmY7Z2s-QPkdqUG379Y-0305 심리학도 필요하다고 생각을 했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0306 그리고 나중에는 이런 홍보를 해야되니까
+- 7J207ZmY7Z2s-QPkdqUG379Y-0307 언론 홍보학도 제가 생각을 하게 됐어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0308 또 이 연구를 하면서 무엇보다도
+- 7J207ZmY7Z2s-QPkdqUG379Y-0309 가장 중요했던 게 뭐냐면
+- 7J207ZmY7Z2s-QPkdqUG379Y-0310 무조건 열정적이고 발로 직접 뛰어야 된다는 거
+- 7J207ZmY7Z2s-QPkdqUG379Y-0311 그래야지 성과가 생길 수 있다는 거
+- 7J207ZmY7Z2s-QPkdqUG379Y-0313 이게 가장 저는 중요하다고 생각을 했어요
+- 7J207ZmY7Z2s-QPkdqUG379Y-0314 그리고 제가 이 연구를 하면서
+- 7J207ZmY7Z2s-QPkdqUG379Y-0315 보고서를 계속 작성을 했어요 매일매일
+- 7J207ZmY7Z2s-QPkdqUG379Y-0317 제가 생각해도
+- 7J207ZmY7Z2s-QPkdqUG379Y-0321 죽어가는 작은 생명체들을 볼 수 있는 눈과 마음을 가질 때
+- 7J207ZmY7Z2s-QPkdqUG379Y-0323 더 행복하게 살 수 있을 것입니다
+- 7J207ZmY7Z2s-QPkdqUG379Y-0324 네 감사합니다
