@@ -5,7 +5,7 @@
 - Length: 6:4 in 146 fragments
 - Place: Seoul
 - Year: 
-- URL: [https://www.youtube.com/watch?v=_ZtWbW9FAMo] (https://www.youtube.com/watch?v=_ZtWbW9FAMo)
+- URL: [https://www.youtube.com/watch?v=_ZtWbW9FAMo](https://www.youtube.com/watch?v=_ZtWbW9FAMo)
 - Transcriber: 
 - Reviewer: 
 
@@ -17,8 +17,8 @@
 - 6rO964+Z7IiY-_ZtWbW9FAMo-0019 영향을 줘서
 - 6rO964+Z7IiY-_ZtWbW9FAMo-0020 요즘 얼마나 무섭습니까
 - 6rO964+Z7IiY-_ZtWbW9FAMo-0021 인터넷에
-- 6rO964+Z7IiY-_ZtWbW9FAMo-0025 고개가 떨어지면서
 - 6rO964+Z7IiY-_ZtWbW9FAMo-0025t 고개가 떨어지면서
+- 6rO964+Z7IiY-_ZtWbW9FAMo-0025 고개가 떨어지면서
 - 6rO964+Z7IiY-_ZtWbW9FAMo-0028 그래서 저는
 - 6rO964+Z7IiY-_ZtWbW9FAMo-0029 진짜 편하게 여러 가지 생각을 하다가
 - 6rO964+Z7IiY-_ZtWbW9FAMo-0030 제가 제일 잘 알고 좋아하는 쪽에 대해서 이야기를 하려고 합니다
