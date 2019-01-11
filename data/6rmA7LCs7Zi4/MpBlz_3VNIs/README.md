@@ -5,7 +5,7 @@
 - Length: 0:4 in 3 fragments
 - Place: Seoul
 - Year: 
-- URL: [https://www.youtube.com/watch?v=MpBlz_3VNIs] (https://www.youtube.com/watch?v=MpBlz_3VNIs)
+- URL: [https://www.youtube.com/watch?v=MpBlz_3VNIs](https://www.youtube.com/watch?v=MpBlz_3VNIs)
 - Transcriber: 
 - Reviewer: 
 
