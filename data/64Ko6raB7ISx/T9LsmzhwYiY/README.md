@@ -5,7 +5,7 @@
 - Length: 0:1 in 1 fragments
 - Place: Seoul
 - Year: 
-- URL: [https://www.youtube.com/watch?v=T9LsmzhwYiY] (https://www.youtube.com/watch?v=T9LsmzhwYiY)
+- URL: [https://www.youtube.com/watch?v=T9LsmzhwYiY](https://www.youtube.com/watch?v=T9LsmzhwYiY)
 - Transcriber: 
 - Reviewer: 
 
