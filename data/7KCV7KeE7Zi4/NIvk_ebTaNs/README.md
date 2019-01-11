@@ -5,7 +5,7 @@
 - Length: 10:2 in 177 fragments
 - Place: Seoul
 - Year: 
-- URL: [https://www.youtube.com/watch?v=NIvk_ebTaNs] (https://www.youtube.com/watch?v=NIvk_ebTaNs)
+- URL: [https://www.youtube.com/watch?v=NIvk_ebTaNs](https://www.youtube.com/watch?v=NIvk_ebTaNs)
 - Transcriber: 
 - Reviewer: 
 
