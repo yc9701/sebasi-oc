@@ -5,7 +5,7 @@
 - Length: 9:52 in 189 fragments
 - Place: Seoul
 - Year: 
-- URL: [https://www.youtube.com/watch?v=dFGbSLw_2BU] (https://www.youtube.com/watch?v=dFGbSLw_2BU)
+- URL: [https://www.youtube.com/watch?v=dFGbSLw_2BU](https://www.youtube.com/watch?v=dFGbSLw_2BU)
 - Transcriber: 
 - Reviewer: 
 
