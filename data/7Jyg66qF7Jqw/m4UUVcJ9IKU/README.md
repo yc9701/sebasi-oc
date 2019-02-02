@@ -2,10 +2,10 @@
 
 - Speaker: 유명우
 - Gender: 
-- Length: 9:25 in 146 fragments
+- Length: 8:50 in 135 fragments
 - Place: Seoul
 - Year: 
-- URL: [https://www.youtube.com/watch?v=m4UUVcJ9IKU] (https://www.youtube.com/watch?v=m4UUVcJ9IKU)
+- URL: [https://www.youtube.com/watch?v=m4UUVcJ9IKU](https://www.youtube.com/watch?v=m4UUVcJ9IKU)
 - Transcriber: 
 - Reviewer: 
 
