@@ -1,154 +1,113 @@
-6rmA7JiB6rK9-1ZR_ps2pCto-0001 안녕하세요
-6rmA7JiB6rK9-1ZR_ps2pCto-0003 반갑습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0005 네 엄청 떨리네요
-6rmA7JiB6rK9-1ZR_ps2pCto-0006 제 이야기를 시작해 보도록 하겠습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0007 여러분들은 주로 일자리 정보를 어디에서 얻으세요
-6rmA7JiB6rK9-1ZR_ps2pCto-0009 스마트폰이 알려 주나요
-6rmA7JiB6rK9-1ZR_ps2pCto-0011 아니면 요즘은 또 SNS 통해서도 많이 아시더라구요
-6rmA7JiB6rK9-1ZR_ps2pCto-0012 그래도 제가 보기에 가장 강력한 경로는 바로
-6rmA7JiB6rK9-1ZR_ps2pCto-0014 아마 자신이 원하는 정보의 양에 따라서 다양한 경로들을 찾지 않을까 생각을 합니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0015 이런 사이트를 통해서 여러분들이 주로 접하시게 되는 구인정보는 어떤 내용들인가요
-6rmA7JiB6rK9-1ZR_ps2pCto-0016 근무시간
-6rmA7JiB6rK9-1ZR_ps2pCto-0018 임금
-6rmA7JiB6rK9-1ZR_ps2pCto-0019 주 협의
-6rmA7JiB6rK9-1ZR_ps2pCto-0020 하는 일은 상세한 설명보다는 키워드 별로 나열이 되어 있습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0021 그나마 대기업이나 중견기업처럼 탄탄한 기업들은
-6rmA7JiB6rK9-1ZR_ps2pCto-0022 이런 정보들이 잘 관리되고 제공된다는 걸 알 수가 있는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0023 더 많은 다양한 일자리 정보들 혹은 작은 기업에 대한 정보는
-6rmA7JiB6rK9-1ZR_ps2pCto-0024 사실 저희가 접하거나 찾기가 쉽지 않습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0026 제공되는 구인정보의 양은 매우 적은데 비해서
-6rmA7JiB6rK9-1ZR_ps2pCto-0027 우리 백수들이 제공해야 되는 지원자격은
-6rmA7JiB6rK9-1ZR_ps2pCto-0029 몸무게 키 사진 가족정보까지
-6rmA7JiB6rK9-1ZR_ps2pCto-0030 상당히 까다롭다고 느껴지지 않으신가요
-6rmA7JiB6rK9-1ZR_ps2pCto-0031 엄청나게 고개들을 끄덕여 주고 계신데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0033 일자리는 많다고 하지만
-6rmA7JiB6rK9-1ZR_ps2pCto-0034 내가 갈 수 있는 일자리가 많아 보이지는 않습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0035 혹시 오늘 이 자리에 회사를 이끌어 가시는 사장님들 와 계신지 모르겠는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0036 제 이야기가 좀 불편하신가요
-6rmA7JiB6rK9-1ZR_ps2pCto-0037 네 사장님이 안 오신 걸로
-6rmA7JiB6rK9-1ZR_ps2pCto-0038 사장님들을 만나보면 대부분 그러십니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0039 사람은 많지만 내가 필요한 인재가 없다라고
-6rmA7JiB6rK9-1ZR_ps2pCto-0040 혹은 새로운 사람이 들어와도 그 사람들이 너무 금방 나가서 많이 힘들다
-6rmA7JiB6rK9-1ZR_ps2pCto-0041 이런 이야기를 하십니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0043 어떻게 하면 조금이라도 좁힐 수 있을까라는 마음으로
-6rmA7JiB6rK9-1ZR_ps2pCto-0044 청년들이 직접 만든 사이트입니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0045 구직자들은 일자리가 없다고 이야기를 하고
-6rmA7JiB6rK9-1ZR_ps2pCto-0046 구인업체는 일할 사람이 없다고 하는 이 문제
-6rmA7JiB6rK9-1ZR_ps2pCto-0047 저희가 청년 실업이라고 하는 거대한 산을 옮길 수는 없겠지만
-6rmA7JiB6rK9-1ZR_ps2pCto-0049 청년들이 쉽게 접하는 구인정보 안에서 자그마한 변화를 만들어 낸다면
-6rmA7JiB6rK9-1ZR_ps2pCto-0050 해결의 실마리를 만들어 갈 수 있지 않을까라는 생각으로
-6rmA7JiB6rK9-1ZR_ps2pCto-0051 이 프로젝트를 시작하게 되었습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0052 서울잡스 하니까 혹시 연상되는 단어 있지 않으신가요
-6rmA7JiB6rK9-1ZR_ps2pCto-0054 오 저랑 통하셨네요
-6rmA7JiB6rK9-1ZR_ps2pCto-0055 처음에 이 이름을 지을 때 제가 생각했던 게 바로 스티브 잡스였어요
-6rmA7JiB6rK9-1ZR_ps2pCto-0056 스티브 잡스처럼 혁신적이고 창조적이며
-6rmA7JiB6rK9-1ZR_ps2pCto-0058 사이트 이름을 서울잡스라고 지었습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0059 저희는 서울 지역의 다양한 일자리
-6rmA7JiB6rK9-1ZR_ps2pCto-0060 그 중에서도 강소기업 사회적기업 NGO 협동조합 등
-6rmA7JiB6rK9-1ZR_ps2pCto-0062 직접 취재해서 기사로 제공하는 그런 구인사이트입니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0063 그런 저희 사이트가 다른 사이트와 가지는 구별되어지는 특별함이 있는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0064 그것은 바로 구직자가 직접 만들어가는 구인 사이트라는 것입니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0065 저희가 분기별로 운영하는 청년 취재단이 있어요
-6rmA7JiB6rK9-1ZR_ps2pCto-0066 오늘도 바로 옆에 을지로청사에서
-6rmA7JiB6rK9-1ZR_ps2pCto-0069 그 업체에 궁금한 점 들을 시시콜콜 꼬치꼬치 묻고
-6rmA7JiB6rK9-1ZR_ps2pCto-0071 즉 구직자들의 얼리어답터라고 할 수 있죠
-6rmA7JiB6rK9-1ZR_ps2pCto-0074 구직자들에게 좀 더 상세한 정보를 제공을 하고 있는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0075 여러분들이 가장 궁금하신 구인 정보는 혹시 어떤 것들이 있나요
-6rmA7JiB6rK9-1ZR_ps2pCto-0076 네 당연히 임금이겠죠
-6rmA7JiB6rK9-1ZR_ps2pCto-0078 그리고 요즘 청년들이 임금 다음으로 궁금해 하는 것이
-6rmA7JiB6rK9-1ZR_ps2pCto-0080 그리고 빼놓을 수 없는 것이 바로 하는 업무에 대한 상세한 설명입니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0082 그 외에도 이 회사가 지하철에서 얼마나 멀리 떨어져 있는지
-6rmA7JiB6rK9-1ZR_ps2pCto-0083 점심은 제공을 하는지
-6rmA7JiB6rK9-1ZR_ps2pCto-0084 혹은 주변에 맛집은 있는지
-6rmA7JiB6rK9-1ZR_ps2pCto-0085 회사 화장실에 비데는 있는지
-6rmA7JiB6rK9-1ZR_ps2pCto-0086 요런 시시콜콜한 것들을 저희 청년 취재단들이 물어보게 되는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0087 저희 청년 취재단의 활동을 통해서 이런 묻는 것들을 통해서
-6rmA7JiB6rK9-1ZR_ps2pCto-0088 저희는 실제로 구직자들이 상세한 정보를 통한 사전 필터링을 통해서
-6rmA7JiB6rK9-1ZR_ps2pCto-0090 실제로 정확한 정보를 제공을 하게 되면
-6rmA7JiB6rK9-1ZR_ps2pCto-0091 구직자들이 이 일이 정말 나의 가치관에 맞는지
-6rmA7JiB6rK9-1ZR_ps2pCto-0092 혹은 나의 능력에 맞는지 스스로가 필터링을 해서
-6rmA7JiB6rK9-1ZR_ps2pCto-0093 능동적인 선택을 하게 되기 때문입니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0094 그래서 이런 임금 추후협의 와 같은 모호한 문구를 날려 버리려고 하는 것입니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0095 저희가 그럼에도 불구하고 계속 그런 고민을 많이 했어요
-6rmA7JiB6rK9-1ZR_ps2pCto-0096 내가 혹시나 같은 청년들에게
-6rmA7JiB6rK9-1ZR_ps2pCto-0097 눈높이를 낮추라고 나 역시 희망 고문을 하고 있는 건 아닐까
-6rmA7JiB6rK9-1ZR_ps2pCto-0099 사실 제 주변에 일을 하는 청년들의 이야기를 들어보면
-6rmA7JiB6rK9-1ZR_ps2pCto-0101 혹은 나는 안정적인 공무원이 되서 안정적으로 평생을 살아가겠다라고 하면서
-6rmA7JiB6rK9-1ZR_ps2pCto-0103 하지만 그런 그들이 결코
-6rmA7JiB6rK9-1ZR_ps2pCto-0104 행복해하지 않는다는 것에 대해 주목을 해 보았습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0105 이미 여기 화면이 띄워졌는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0106 작년에 방송에서 회사에서 좀 놀면 안되나요 라는 말을 해서
-6rmA7JiB6rK9-1ZR_ps2pCto-0108 이 기업은 여전히 한 명의 직원을 뽑는데도 천명이 넘는 사람들의 경쟁이 있을 정도로
-6rmA7JiB6rK9-1ZR_ps2pCto-0110 왜 제니퍼 소프트사는 청년들에게 이렇게 인기가 많은 걸까요
-6rmA7JiB6rK9-1ZR_ps2pCto-0111 네 IT 업체여서
-6rmA7JiB6rK9-1ZR_ps2pCto-0112 수영장이 있어서
-6rmA7JiB6rK9-1ZR_ps2pCto-0116 하지만 저는 생각해 봤을 때
-6rmA7JiB6rK9-1ZR_ps2pCto-0118 그래서 그걸 보는 청년들은
-6rmA7JiB6rK9-1ZR_ps2pCto-0119 아 내가 저기 가서 일을 하면 정말 존중받을 수 있을 것 같아라는
-6rmA7JiB6rK9-1ZR_ps2pCto-0121 즉 그 회사가 나를 위해 쓰는 사람에 대한 씀씀이를 보게 되는 게 아닐까요
-6rmA7JiB6rK9-1ZR_ps2pCto-0122 기존의 우리들은 청년 실업의 문제는 청년이 스펙을 쌓아야 하는 것이고
-6rmA7JiB6rK9-1ZR_ps2pCto-0123 구인구직의 미스매치 문제는
-6rmA7JiB6rK9-1ZR_ps2pCto-0124 구직자들이 직업훈련과 직업상담을 더 많이 받아야 된다는 이야기만 들어 왔습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0125 하지만 이제는 조금 시선을 바꿔서
-6rmA7JiB6rK9-1ZR_ps2pCto-0126 구인 업체들이 그러한 인재를 얻기 위해 조금 더 노력한다면은
-6rmA7JiB6rK9-1ZR_ps2pCto-0127 이런 문제를 해결할 수 있는 실마리가 마련될 수 있지 않을까
-6rmA7JiB6rK9-1ZR_ps2pCto-0128 이게 저희의 고민이었습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0129 그래서 저희는 그런 생각을 합니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0130 구인 업체를 위한 상담 컨설팅 프로그램을 만들어 보려고 하는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0132 수평적이고 유연한 조직문화를 만드는 것은 무엇인지
-6rmA7JiB6rK9-1ZR_ps2pCto-0133 혹은 사람에게 투자하는 법은 무엇인지에 대한 컨설팅 프로그램을 만들어서
-6rmA7JiB6rK9-1ZR_ps2pCto-0134 그런 작은 업체들을 도와가고 싶습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0135 물론 저희 서울잡스 플랫폼이
-6rmA7JiB6rK9-1ZR_ps2pCto-0136 임금의 수준을 높이는 등의 문제를 해결할 수는 없겠지만
-6rmA7JiB6rK9-1ZR_ps2pCto-0139 그래서 이러한 문제를 조금은 해결하는 데 기여해 보겠다고 하는게 저희의 비전입니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0140 사실 제가 이 일을 시작하게 된 데에는 아까 사회자님의 소개도 있었는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0141 저의 지인들과 함께 2010년에
-6rmA7JiB6rK9-1ZR_ps2pCto-0143 그때 이런 불안정한 여러 청년의 문제에 대해서 노력을 했었는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0144 제가 가장 기억에 남는 일은 바로
-6rmA7JiB6rK9-1ZR_ps2pCto-0147 그래서 이 문제를 해결하기 위해서 끈질기게 노력을 한 결과
-6rmA7JiB6rK9-1ZR_ps2pCto-0151 감사합니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0153 그리고 작년에는 서울시가 지자체 최초로
-6rmA7JiB6rK9-1ZR_ps2pCto-0154 대기업 프렌차이즈점에 의해서 불공정한 피해를 입고있는
-6rmA7JiB6rK9-1ZR_ps2pCto-0155 가맹점주들의 법률규제를 위한 불공정 피해 상담센터를 열었었습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0156 제가 여기에서 잠깐 코디네이터로 일을 했었는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0157 이곳에 상담을 받으러 오는 많은 점주들의 절반 이상이
-6rmA7JiB6rK9-1ZR_ps2pCto-0158 2030대 청년 점주들이었습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0159 아마 작년에 뉴스를 통해서 편의점주들이 자살한다는 소식들
-6rmA7JiB6rK9-1ZR_ps2pCto-0160 혹은 남양유업의 불공정 관행 때문에
-6rmA7JiB6rK9-1ZR_ps2pCto-0161 점주들이 힘들어 한다는 얘기들 많이 들어보셨을 거에요
-6rmA7JiB6rK9-1ZR_ps2pCto-0162 사실 멀리 가지 않더라도 우리가 거리를 걷다보면
-6rmA7JiB6rK9-1ZR_ps2pCto-0163 똑같은 프랜차이즈의 가게가 너무 가까운 곳에 입점해 있다는 걸 볼 수가 있습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0165 경쟁이 격화됨에도 불구하고
-6rmA7JiB6rK9-1ZR_ps2pCto-0166 사실 본사가 나 몰라라 하면서
-6rmA7JiB6rK9-1ZR_ps2pCto-0168 그러다 보니까 여기에 상담을 받으러 오는 대부분의 2030대 점주들은
-6rmA7JiB6rK9-1ZR_ps2pCto-0170 그렇게 상담을 받고 돌아서는
-6rmA7JiB6rK9-1ZR_ps2pCto-0172 또는 폐업을 원하는 상담을 받고 돌아서는 그 청년들의 뒷모습을 보면서
-6rmA7JiB6rK9-1ZR_ps2pCto-0174 당장의 문제는 상담을 통해서 해결할 수 있지만
-6rmA7JiB6rK9-1ZR_ps2pCto-0175 그들은 또 다시 자신의 그 다음 일자리를 찾는 데에는
-6rmA7JiB6rK9-1ZR_ps2pCto-0176 홀로 그 정글을 헤쳐 나가야 된다는 생각이 들었습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0177 그 다음 단계인 그 발걸음에 우리가 같이 동행할 수 있는 건 없을까
-6rmA7JiB6rK9-1ZR_ps2pCto-0178 그 마음으로 고민을 하다가
-6rmA7JiB6rK9-1ZR_ps2pCto-0181 작년 11월부터 시작된 이 프로젝트가 초기이기도 했기 때문에
-6rmA7JiB6rK9-1ZR_ps2pCto-0182 너무 많은 분들에게 아직 홍보가 되지 않아서
-6rmA7JiB6rK9-1ZR_ps2pCto-0184 작은 성과이긴 하지만 40군데 정도의 섭외 허가를 받아서
-6rmA7JiB6rK9-1ZR_ps2pCto-0185 지금 플랫폼에는 그 정도의 컨텐츠가 올라가 있습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0187 세상이 이렇게 넓은 줄 몰랐다
-6rmA7JiB6rK9-1ZR_ps2pCto-0188 그리고 일자리가 이렇게 다양한 줄 몰랐다 라는 이야기를 들을 때마다
-6rmA7JiB6rK9-1ZR_ps2pCto-0189 우리의 도전이 결코 헛된 것만은 아니구나 이런 생각을 해 보게 됩니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0192 기존에 있던 것들을 새롭게 재조명하고 재조합해 나가는 것들이
-6rmA7JiB6rK9-1ZR_ps2pCto-0193 새로운 길이 아닐까라는 생각을 해 봅니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0196 청년들의 눈높이에 맞춘다면
-6rmA7JiB6rK9-1ZR_ps2pCto-0198 제가 여러 활동을 통해서 했던 활동들
-6rmA7JiB6rK9-1ZR_ps2pCto-0199 이러한 현실을 회피하지 않고 직면하면서 문제를 해결하고자 했던 활동들이
-6rmA7JiB6rK9-1ZR_ps2pCto-0200 엮이고 만나고 그리고 지금 이렇게 재창조돼서
-6rmA7JiB6rK9-1ZR_ps2pCto-0201 저에게 새로운 일로 다가왔습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0202 지금 청년 취재단들 역시도 저와 똑같은 마음으로
-6rmA7JiB6rK9-1ZR_ps2pCto-0203 더 많은 청년들에게 일자리 정보를 잘 제공하기 위해서
-6rmA7JiB6rK9-1ZR_ps2pCto-0204 오늘도 한땀한땀 정성을 들여서 취재를 하고 기사를 작성하고 있는데요
-6rmA7JiB6rK9-1ZR_ps2pCto-0205 이런 사이트 한 번 이용해 보고 싶지 않으세요
-6rmA7JiB6rK9-1ZR_ps2pCto-0207 아직은 존재만으로 위안이 되는 사이트이긴 하지만
-6rmA7JiB6rK9-1ZR_ps2pCto-0208 봄날에 연인들이 만나듯
-6rmA7JiB6rK9-1ZR_ps2pCto-0210 실력있는 플랫폼으로 여러분들을 다시 한 번 찾아 뵙도록 하겠습니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0211 그렇게 되기에는 여러분들의 큰 응원이 필요하다는 것 다들 아시죠
-6rmA7JiB6rK9-1ZR_ps2pCto-0213 제 이야기 끝까지 들어주셔서 너무나 감사합니다
-6rmA7JiB6rK9-1ZR_ps2pCto-0214 감사합니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0001 감사합니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0002 그리고 일자리가 이렇게 다양한 줄 몰랐다 라는 이야기를 들을 때마다
+6rmA7JiB6rK9-1ZR_ps2pCto-0003 지금 청년 취재단들 역시도 저와 똑같은 마음으로
+6rmA7JiB6rK9-1ZR_ps2pCto-0004 이게 저희의 고민이었습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0005 당장의 문제는 상담을 통해서 해결할 수 있지만
+6rmA7JiB6rK9-1ZR_ps2pCto-0006 내가 혹시나 같은 청년들에게
+6rmA7JiB6rK9-1ZR_ps2pCto-0007 사람은 많지만 내가 필요한 인재가 없다라고
+6rmA7JiB6rK9-1ZR_ps2pCto-0008 그때 이런 불안정한 여러 청년의 문제에 대해서 노력을 했었는데요
+6rmA7JiB6rK9-1ZR_ps2pCto-0009 여러분들이 가장 궁금하신 구인 정보는 혹시 어떤 것들이 있나요
+6rmA7JiB6rK9-1ZR_ps2pCto-0010 점심은 제공을 하는지
+6rmA7JiB6rK9-1ZR_ps2pCto-0011 눈높이를 낮추라고 나 역시 희망 고문을 하고 있는 건 아닐까
+6rmA7JiB6rK9-1ZR_ps2pCto-0012 지금 플랫폼에는 그 정도의 컨텐츠가 올라가 있습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0013 혹시 오늘 이 자리에 회사를 이끌어 가시는 사장님들 와 계신지 모르겠는데요
+6rmA7JiB6rK9-1ZR_ps2pCto-0014 왜 제니퍼 소프트사는 청년들에게 이렇게 인기가 많은 걸까요
+6rmA7JiB6rK9-1ZR_ps2pCto-0015 여러분들은 주로 일자리 정보를 어디에서 얻으세요
+6rmA7JiB6rK9-1ZR_ps2pCto-0016 그 다음 단계인 그 발걸음에 우리가 같이 동행할 수 있는 건 없을까
+6rmA7JiB6rK9-1ZR_ps2pCto-0017 몸무게 키 사진 가족정보까지
+6rmA7JiB6rK9-1ZR_ps2pCto-0018 수평적이고 유연한 조직문화를 만드는 것은 무엇인지
+6rmA7JiB6rK9-1ZR_ps2pCto-0019 그래서 이 문제를 해결하기 위해서 끈질기게 노력을 한 결과
+6rmA7JiB6rK9-1ZR_ps2pCto-0020 그러다 보니까 여기에 상담을 받으러 오는 대부분의 2030대 점주들은
+6rmA7JiB6rK9-1ZR_ps2pCto-0021 사실 제 주변에 일을 하는 청년들의 이야기를 들어보면
+6rmA7JiB6rK9-1ZR_ps2pCto-0022 제가 가장 기억에 남는 일은 바로
+6rmA7JiB6rK9-1ZR_ps2pCto-0023 혹은 새로운 사람이 들어와도 그 사람들이 너무 금방 나가서 많이 힘들다
+6rmA7JiB6rK9-1ZR_ps2pCto-0024 봄날에 연인들이 만나듯
+6rmA7JiB6rK9-1ZR_ps2pCto-0025 저희는 서울 지역의 다양한 일자리
+6rmA7JiB6rK9-1ZR_ps2pCto-0026 작년 11월부터 시작된 이 프로젝트가 초기이기도 했기 때문에
+6rmA7JiB6rK9-1ZR_ps2pCto-0027 사실 저희가 접하거나 찾기가 쉽지 않습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0028 그리고 빼놓을 수 없는 것이 바로 하는 업무에 대한 상세한 설명입니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0029 그 중에서도 강소기업 사회적기업 NGO 협동조합 등
+6rmA7JiB6rK9-1ZR_ps2pCto-0030 회사 화장실에 비데는 있는지
+6rmA7JiB6rK9-1ZR_ps2pCto-0031 가맹점주들의 법률규제를 위한 불공정 피해 상담센터를 열었었습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0032 이 프로젝트를 시작하게 되었습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0033 그 외에도 이 회사가 지하철에서 얼마나 멀리 떨어져 있는지
+6rmA7JiB6rK9-1ZR_ps2pCto-0034 그렇게 상담을 받고 돌아서는
+6rmA7JiB6rK9-1ZR_ps2pCto-0035 사장님들을 만나보면 대부분 그러십니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0036 아마 자신이 원하는 정보의 양에 따라서 다양한 경로들을 찾지 않을까 생각을 합니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0037 청년들이 직접 만든 사이트입니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0038 더 많은 다양한 일자리 정보들 혹은 작은 기업에 대한 정보는
+6rmA7JiB6rK9-1ZR_ps2pCto-0039 구인 업체를 위한 상담 컨설팅 프로그램을 만들어 보려고 하는데요
+6rmA7JiB6rK9-1ZR_ps2pCto-0040 하지만 그런 그들이 결코
+6rmA7JiB6rK9-1ZR_ps2pCto-0041 제공되는 구인정보의 양은 매우 적은데 비해서
+6rmA7JiB6rK9-1ZR_ps2pCto-0042 즉 그 회사가 나를 위해 쓰는 사람에 대한 씀씀이를 보게 되는 게 아닐까요
+6rmA7JiB6rK9-1ZR_ps2pCto-0043 그래서 이러한 문제를 조금은 해결하는 데 기여해 보겠다고 하는게 저희의 비전입니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0044 구인구직의 미스매치 문제는
+6rmA7JiB6rK9-1ZR_ps2pCto-0045 네 IT 업체여서
+6rmA7JiB6rK9-1ZR_ps2pCto-0046 그나마 대기업이나 중견기업처럼 탄탄한 기업들은
+6rmA7JiB6rK9-1ZR_ps2pCto-0047 혹은 사람에게 투자하는 법은 무엇인지에 대한 컨설팅 프로그램을 만들어서
+6rmA7JiB6rK9-1ZR_ps2pCto-0048 서울잡스 하니까 혹시 연상되는 단어 있지 않으신가요
+6rmA7JiB6rK9-1ZR_ps2pCto-0049 아직은 존재만으로 위안이 되는 사이트이긴 하지만
+6rmA7JiB6rK9-1ZR_ps2pCto-0050 사실 제가 이 일을 시작하게 된 데에는 아까 사회자님의 소개도 있었는데요
+6rmA7JiB6rK9-1ZR_ps2pCto-0051 이곳에 상담을 받으러 오는 많은 점주들의 절반 이상이
+6rmA7JiB6rK9-1ZR_ps2pCto-0052 기존의 우리들은 청년 실업의 문제는 청년이 스펙을 쌓아야 하는 것이고
+6rmA7JiB6rK9-1ZR_ps2pCto-0053 해결의 실마리를 만들어 갈 수 있지 않을까라는 생각으로
+6rmA7JiB6rK9-1ZR_ps2pCto-0054 그들은 또 다시 자신의 그 다음 일자리를 찾는 데에는
+6rmA7JiB6rK9-1ZR_ps2pCto-0055 하지만 저는 생각해 봤을 때
+6rmA7JiB6rK9-1ZR_ps2pCto-0056 저에게 새로운 일로 다가왔습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0057 구직자들이 직업훈련과 직업상담을 더 많이 받아야 된다는 이야기만 들어 왔습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0058 그리고 요즘 청년들이 임금 다음으로 궁금해 하는 것이
+6rmA7JiB6rK9-1ZR_ps2pCto-0059 사실 본사가 나 몰라라 하면서
+6rmA7JiB6rK9-1ZR_ps2pCto-0060 제 이야기 끝까지 들어주셔서 너무나 감사합니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0061 그래도 제가 보기에 가장 강력한 경로는 바로
+6rmA7JiB6rK9-1ZR_ps2pCto-0062 감사합니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0063 구직자들이 이 일이 정말 나의 가치관에 맞는지
+6rmA7JiB6rK9-1ZR_ps2pCto-0064 실력있는 플랫폼으로 여러분들을 다시 한 번 찾아 뵙도록 하겠습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0065 똑같은 프랜차이즈의 가게가 너무 가까운 곳에 입점해 있다는 걸 볼 수가 있습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0066 능동적인 선택을 하게 되기 때문입니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0067 청년들이 쉽게 접하는 구인정보 안에서 자그마한 변화를 만들어 낸다면
+6rmA7JiB6rK9-1ZR_ps2pCto-0068 물론 저희 서울잡스 플랫폼이
+6rmA7JiB6rK9-1ZR_ps2pCto-0069 그래서 저희는 그런 생각을 합니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0070 작년에 방송에서 회사에서 좀 놀면 안되나요 라는 말을 해서
+6rmA7JiB6rK9-1ZR_ps2pCto-0071 실제로 정확한 정보를 제공을 하게 되면
+6rmA7JiB6rK9-1ZR_ps2pCto-0072 그 마음으로 고민을 하다가
+6rmA7JiB6rK9-1ZR_ps2pCto-0073 어떻게 하면 조금이라도 좁힐 수 있을까라는 마음으로
+6rmA7JiB6rK9-1ZR_ps2pCto-0074 하는 일은 상세한 설명보다는 키워드 별로 나열이 되어 있습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0075 임금의 수준을 높이는 등의 문제를 해결할 수는 없겠지만
+6rmA7JiB6rK9-1ZR_ps2pCto-0076 그래서 그걸 보는 청년들은
+6rmA7JiB6rK9-1ZR_ps2pCto-0077 저희가 청년 실업이라고 하는 거대한 산을 옮길 수는 없겠지만
+6rmA7JiB6rK9-1ZR_ps2pCto-0078 점주들이 힘들어 한다는 얘기들 많이 들어보셨을 거에요
+6rmA7JiB6rK9-1ZR_ps2pCto-0079 그렇게 되기에는 여러분들의 큰 응원이 필요하다는 것 다들 아시죠
+6rmA7JiB6rK9-1ZR_ps2pCto-0080 오늘도 바로 옆에 을지로청사에서
+6rmA7JiB6rK9-1ZR_ps2pCto-0081 경쟁이 격화됨에도 불구하고
+6rmA7JiB6rK9-1ZR_ps2pCto-0082 혹은 나의 능력에 맞는지 스스로가 필터링을 해서
+6rmA7JiB6rK9-1ZR_ps2pCto-0083 2030대 청년 점주들이었습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0084 이런 사이트를 통해서 여러분들이 주로 접하시게 되는 구인정보는 어떤 내용들인가요
+6rmA7JiB6rK9-1ZR_ps2pCto-0085 너무 많은 분들에게 아직 홍보가 되지 않아서
+6rmA7JiB6rK9-1ZR_ps2pCto-0086 이런 정보들이 잘 관리되고 제공된다는 걸 알 수가 있는데요
+6rmA7JiB6rK9-1ZR_ps2pCto-0087 대기업 프렌차이즈점에 의해서 불공정한 피해를 입고있는
+6rmA7JiB6rK9-1ZR_ps2pCto-0088 구직자들에게 좀 더 상세한 정보를 제공을 하고 있는데요
+6rmA7JiB6rK9-1ZR_ps2pCto-0089 사실 멀리 가지 않더라도 우리가 거리를 걷다보면
+6rmA7JiB6rK9-1ZR_ps2pCto-0090 혹은 주변에 맛집은 있는지
+6rmA7JiB6rK9-1ZR_ps2pCto-0091 근무시간
+6rmA7JiB6rK9-1ZR_ps2pCto-0092 그리고 작년에는 서울시가 지자체 최초로
+6rmA7JiB6rK9-1ZR_ps2pCto-0093 그것은 바로 구직자가 직접 만들어가는 구인 사이트라는 것입니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0094 저의 지인들과 함께 2010년에
+6rmA7JiB6rK9-1ZR_ps2pCto-0095 홀로 그 정글을 헤쳐 나가야 된다는 생각이 들었습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0096 하지만 이제는 조금 시선을 바꿔서
+6rmA7JiB6rK9-1ZR_ps2pCto-0097 작은 성과이긴 하지만 40군데 정도의 섭외 허가를 받아서
+6rmA7JiB6rK9-1ZR_ps2pCto-0098 수영장이 있어서
+6rmA7JiB6rK9-1ZR_ps2pCto-0099 요런 시시콜콜한 것들을 저희 청년 취재단들이 물어보게 되는데요
+6rmA7JiB6rK9-1ZR_ps2pCto-0100 일자리는 많다고 하지만
+6rmA7JiB6rK9-1ZR_ps2pCto-0101 아마 작년에 뉴스를 통해서 편의점주들이 자살한다는 소식들
+6rmA7JiB6rK9-1ZR_ps2pCto-0102 제가 여기에서 잠깐 코디네이터로 일을 했었는데요
+6rmA7JiB6rK9-1ZR_ps2pCto-0103 저희가 분기별로 운영하는 청년 취재단이 있어요
+6rmA7JiB6rK9-1ZR_ps2pCto-0104 그 업체에 궁금한 점 들을 시시콜콜 꼬치꼬치 묻고
+6rmA7JiB6rK9-1ZR_ps2pCto-0105 사이트 이름을 서울잡스라고 지었습니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0106 이런 문제를 해결할 수 있는 실마리가 마련될 수 있지 않을까
+6rmA7JiB6rK9-1ZR_ps2pCto-0107 오늘도 한땀한땀 정성을 들여서 취재를 하고 기사를 작성하고 있는데요
+6rmA7JiB6rK9-1ZR_ps2pCto-0108 또는 폐업을 원하는 상담을 받고 돌아서는 그 청년들의 뒷모습을 보면서
+6rmA7JiB6rK9-1ZR_ps2pCto-0109 임금
+6rmA7JiB6rK9-1ZR_ps2pCto-0110 혹은 남양유업의 불공정 관행 때문에
+6rmA7JiB6rK9-1ZR_ps2pCto-0111 이런 이야기를 하십니다
+6rmA7JiB6rK9-1ZR_ps2pCto-0112 우리 백수들이 제공해야 되는 지원자격은
+6rmA7JiB6rK9-1ZR_ps2pCto-0113 그런 작은 업체들을 도와가고 싶습니다
