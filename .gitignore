@@ -1,0 +1,4 @@
+**/*.py
+**/tmp
+**/dlist.txt
+**/*.org.txt
