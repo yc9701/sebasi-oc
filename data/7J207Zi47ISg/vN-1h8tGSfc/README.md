@@ -2,13 +2,10 @@
 
 - Speaker: 이호선
 - Gender: 
-- Length: 0:0 in 1 fragments
 - Place: Seoul
 - Year: 
-- URL: [https://www.youtube.com/watch?v=vN-1h8tGSfc] (https://www.youtube.com/watch?v=vN-1h8tGSfc)
+- URL: [https://www.youtube.com/watch?v=vN-1h8tGSfc](https://www.youtube.com/watch?v=vN-1h8tGSfc)
 - Transcriber: 
 - Reviewer: 
 
----
 
-- 7J207Zi47ISg-vN-1h8tGSfc-0124 부모와
