@@ -1,6 +1,6 @@
 # Sebasi Open Corpus (Sebasi-OC)
 
-The Sebasi Open Corpus is a Korean speech recognition (ASR) corpus generated from Sebasi talks. Sebasi is a Korean TV program with educational and inspirational video content. The generated corpus contains about 21 hours of speech audio-transcript pairs, to be uploaded in the future.
+The Sebasi Open Corpus is a Korean speech recognition (ASR) corpus generated from Sebasi talks. Sebasi is a Korean TV program with educational and inspirational video content. The generated corpus contains about 10 hours of speech audio-transcript pairs with 10 more hours to be uploaded in the future.
 
 This corpus was generated using a corpus data ingestion and processing system called Pansori. Please refer to [this code repository](https://github.com/yc9701/pansori) and paper [1] for further information on the Pansori ASR corpus generation system.
 
